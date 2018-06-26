@@ -1,23 +1,18 @@
 ---
 published: true
-title: Cách chữa 4 loại bệnh tật bằng mẹo rất hay
-custom_excerpt: Hàng ngày có vô vàn những căn bệnh nho nhỏ được chữa bằng mẹo, không cần động đến 1 viên thuốc tây nào. Hãy tham khảo cách chữa 4 loại bệnh tật bằng mẹo không cần thuốc của vị giáo sư đáng kính này.
+title: How to treat 4 types of illness with very good tips
+custom_excerpt: Everyday there are countless small diseases treated with tips, no need to touch a pill. Please refer to this respected professor for treatment of four types of illness.
+
 ---
 
-![ten buc hinh](http://autoxe.net/wp-content/uploads/2017/10/luu-lai-khi-can-de-dung-cach-chua-46-loai-benh-tat-bang-meo-rat-hay-xin-chan-thanh-c.jpg "ten buc hinh")
+Dust or mosquitoes fly into the eyes, eyes are hot spit:
+Do not rub your eyes to the cornea. Just sticking out his tongue licking a few edges, tears will ejaculate "strange play" out of the eye! Remember: if you have the right eye, lick the left side and vice versa.
 
-1. Bụi hoặc muỗi bay vào mắt, mắt bị cay xè:
+Eyes closed:
+An unblocked eye (due to paroxysmal necrosis of the 7th, for example), orthodox symmetry. On several occasions, every few minutes, the eyes will gradually close.
 
-Chớ có dụi mắt mà tổn thương đến giác mạc. Chỉ cần thè lưỡi liếm mép vài cái, nước mắt sẽ ứa ra “lùa vật lạ” ra khỏi mắt! Nên nhớ một điều: nếu bị mắt phải thì liếm mép bên trái và ngược lại.
+Stuck hard:
+No matter how obtundatory (nose or throat) is and how long it has been, just worm the nose on the forehead - from the middle of the forehead (point 103) to the tip of the eyebrow (grave 26), one minute well, the nose will clear immediately. What an incredible miracle.
 
-02. Mắt nhắm không khít:
-
-Một mắt nhắm không khít (do bị liệt dây thần kinh số 7 chẳng hạn), hơ ngải cứu bên mắt đối xứng. Ngày hơ nhiều lần, mỗi lần hơ độ vài phút, mắt sẽ dần dần nhắm khít.
-
-03. Mũi nghẹt cứng:
-
-Dù mũi bị nghẹt (tắc hoặc tịt) đến mức nào và đã bao lâu rồi, chỉ cần hơ ngải cứu vào đồ hình mũi trên trán – từ giữa trán (huyệt 103) đến đầu đôi lông mày (huyệt 26), độ một phút thôi, mũi sẽ thông thoáng ngay. Thật là một phép lạ đến khó tin.
-
-04. Bả vai đau nhức, không giơ lên cao được:
-
-Dùng đầu ngón tay trỏ gõ vài chục cái vào đầu mày (huyện 65) cùng bên đau. Vai hết đau và tay lại giơ lên cao được ngay.
+Shoulder pain, not raised:
+Point the tip of your finger with a few dozen (65) on the same side of the pain. Shoulder pain and hands raised up immediately.

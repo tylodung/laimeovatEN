@@ -1,58 +1,53 @@
 ---
 layout: post
-title:  Cách Làm Mặt Nạ Dâu Tây Giúp Da Trắng Mịn
-custom_excerpt: Trong mặt nạ dâu tây này bao gồm nước ép chanh, sữa chua và mật ong. Nước chanh tuyệt vời để duy trì làn da mềm mại và mịn màng. Do hàm lượng cao Axit Citric, nó có tác dụng làm sáng da tự nhiên.
+title:  How To Make Strawberry Mask Smooth
+custom_excerpt: In the strawberry mask this includes lemon juice, yogurt and honey. Excellent lemon juice to keep skin soft and smooth. Due to the high content of citric acid, it has a natural lightening effect.
+
 ---
 
-Dâu tây đặc biệt tốt cho da nhờn và da mụn vì nó giúp loại bỏ bã nhờn dư thừa. Nó cũng hoạt động như một “skin toner” tuyệt vời nhờ tính chất làm se.
+Strawberry is especially good for oily and acne skin as it removes excess sebum. It also acts as a "skin toner" thanks to astringent properties.
 
-Nó có chứa các Axit Alpha-Hydroxy giúp loại bỏ tế bào da chết và trị mụn trứng cá. Dâu tây cũng thúc đẩy làn da săn chắc và mịn màng, giúp mờ dần những vết sẹo do mụn trứng cá.
+It contains Alpha-Hydroxy Acids to remove dead skin cells and treat acne. Strawberries also promote skin firmness and smoothness, helping to fade the acne scars.
 
-Thêm vào đó, Axit Ellagic chống oxy hóa trong dâu tây ngăn chặn sự suy giảm collagen, la nguyên nhân góp phần gây ra nếp nhăn. Dâu tây còn có tác dụng bảo vệ da khỏi tác hại do tia cực tím của mặt trời.
+In addition, Ellagic acid antioxidants in strawberries prevent collagen depletion, which contributes to wrinkles. Strawberries also protect the skin from harmful UV rays of the sun.
 
- Trong mặt nạ dâu tây này bao gồm nước ép chanh, sữa chua và mật ong. Nước chanh tuyệt vời để duy trì làn da mềm mại và mịn màng. Do hàm lượng cao Axit Citric, nó có tác dụng làm sáng da tự nhiên.
+In the strawberry mask this includes lemon juice, yogurt and honey. Excellent lemon juice to keep skin soft and smooth. Due to the high content of citric acid, it has a natural lightening effect.
 
-Sữa chua có chứa Acid Lactic làm giảm mụn và làm mịn làn da thô ráp. Nó cũng chống lại mụn trứng cá và mang lại cho bạn một làn da sáng rạng ngời. Mật ong cũng rất tốt cho làn da của bạn bởi vì có tác dụng giữ ẩm cho làn da. Thêm vào đó, tính chất kháng khuẩn giúp chống lại vi khuẩn gây mụn.
+Yogurt contains Lactic Acid which reduces acne and smoothes rough skin. It also counteracts acne and gives you a radiant complexion. Honey is also good for your skin because it moisturizes the skin. In addition, antibacterial properties help fight acne bacteria.
 
-Cách làm mặt nạ dâu tây
+How to make strawberry masks
 
-Nguyên liệu cần thiết:
+Essential Ingredients:
 
+Strawberry
 
-Dâu tây
+Yogurt without sugar
 
-Sữa chua không đường
+Lemonade
 
-Nước chanh
+Honey
 
-Mật ong
+A knife
 
-Một con dao
+A fork
 
-Một cái dĩa
+Glasses and spoons
 
-Cốc và thìa đong
+Steps taken:
 
-Các bước thực hiện:
+Cut 4-5 fresh strawberries into pieces and crush them with a fork.
+How to sleep on the hands; Make sure the skin is clean
 
-1. Cắt 4-5 dâu tây tươi thành từng miếng và nghiền nát chúng bằng một cái dĩa.
+Place ¼ cup of crushed strawberries in a bowl.
+How to sleep on the hands; Make sure the skin is clean
 
-Cach lam mat na dau tay; cach lam mat na cho da
+Add 1 tablespoon fresh lemon juice squeezed into it.
+How to sleep on the hands; Make sure the skin is clean
 
-2. Cho ¼ chén dâu tây nghiền vào một cái bát.
+Add 1 tablespoon of yogurt.
+How to sleep on the hands; Make sure the skin is clean
 
-Cach lam mat na dau tay; cach lam mat na cho da
+Mix 1 tablespoon of honey.
+How to sleep on the hands; how to make your skin smooth; Make sure the skin is clean
 
-3. Thêm 1 muỗng canh nước cốt chanh tươi vắt vào nó.
-
-Cach lam mat na dau tay; cach lam mat na cho da
-
-4. Thêm 1 muỗng canh sữa chua.
-
-Cach lam mat na dau tay; cach lam mat na cho da
-
-5. Trộn 1 muỗng canh mật ong.
-
-Cach lam mat na dau tay; cach lam mat na cho da Cach lam mat na dau tay; cach lam mat na cho da
-
-Mặt nạ dâu tây tự chế của bạn đã sẵn sàng sử dụng! 
+Your homemade strawberry masks are ready to use!

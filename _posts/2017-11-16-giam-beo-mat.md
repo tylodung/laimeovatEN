@@ -1,161 +1,153 @@
 ---
 published: true
-title: Tạm biệt gương mặt tròn vo với 9 bài tập giảm béo
-custom_excerpt: Tuy nhiên, không phải ai cũng có thể dễ dàng loại bỏ mỡ mặt bằng cách tập thể dục. Nhiều người cho biết dù có có tập thể dục nhiều thế nào, họ vẫn không thể giảm béo mặt được, đặc biệt là đám mỡ thừa đáng ghét trên má làm khuôn mặt trở nên phúng phính, tròn trịa.
+title: Goodbye round face with nine exercises to reduce fat
+custom_excerpt: However, not everyone can easily remove face fat by exercising. Many people said that despite the exercise, they still can not lose face fat, especially the greasy fat on the cheeks face becomes cheeky, round.
+
 ---
 
-Tuy nhiên, không phải ai cũng có thể dễ dàng loại bỏ mỡ mặt bằng cách tập thể dục. Nhiều người cho biết dù có có tập thể dục nhiều thế nào, họ vẫn không thể giảm béo mặt được, đặc biệt là đám mỡ thừa đáng ghét trên má làm khuôn mặt trở nên phúng phính, tròn trịa.
+However, not everyone can easily remove face fat by exercising. Many people said that despite the exercise, they still can not lose face fat, especially the greasy fat on the cheeks face becomes cheeky, round.
 
-Một vài người có cơ địa rất dễ bị béo mặt. Có nhiều nguyên nhân gây ra béo mặt, có thể là do gen làm cho mỡ thường tập trung trên mặt thay vì những vùng cơ thể khác.
+Some people are very easy to get fat. There are many causes for facial fat, which may be due to the fact that the gene causes the fat to concentrate on the face instead of other areas of the body.
 
-Mặc dù nghe thì có vẻ khó khăn nhưng không phải hoàn toàn hết hy vọng. Bạn cần từng bước kiên nhẫn để sở hữu khuôn mặt gọn gàng và thanh thoát mà bạn hằng ao ước.
+Although it may sound difficult, it is not entirely hopeless. You need to be patient to possess the neat and clean face that you long for.
 
-Đây là một vài bài tập thể dục cho cơ mặt mà bạn có thể thực hiện để loại bỏ đôi má phúng phính và giảm béo mặt nhanh nhất.
+Here are some exercises for facial muscles that you can do to get rid of cheeks and slimming the fastest.
 
-1. Xoay Tròn Quanh Gò Má
+Turn around the cheek
+This exercise is a combination of "yoga" movements for facial muscles are quite common. It affects the fat in the cheeks.
 
-Bài tập này là sự kết hợp của những động tác “yoga” cho cơ mặt khá phổ biến. Nó tác động lên lớp mỡ ở vùng má.
+For some people, the tissues and facial skin are sagged causing the face to become too chubby. This is a particularly effective treatment for skin that begins to show signs of aging.
 
-Đối với một vài người, các mô và lớp da mặt bị chùng xuống làm cho khuôn mặt trở nên quá mũm mĩm. Đây là động tác đặc biệt hiệu quả với những làn da bắt đầu có dấu hiệu lão hóa. 
+It improves blood circulation, makes the blush look natural and gives you a fresh, youthful look.
 
-Nó giúp cho quá trình tuần hoàn máu tốt hơn, làm cho má ửng hồng tự nhiên và giúp bạn có một vẻ ngoài trẻ trung, tươi tắn.
+After a few days of trying this action, the cheeks will be more compact and prominent.
 
-Chỉ sau một vài ngày thử động tác này, cơ má sẽ thon gọn hơn và nhô cao thấy rõ.
+Place the index finger under the cheekbones, just below the cheekbones so that the tips of the fingers are vertical to the pupils and parallel to the bridge of the nose.
 
-Đặt ngón trỏ dưới xương gò má, ngay dưới xương gò má sao cho đầu ngón tay thẳng đứng theo con ngươi và song song với sống mũi.
+Continue massage with your fingertips clockwise.
 
-Tiếp tục mát xa bằng đầu ngón tay theo chiều kim đồng hồ.
+Continue to massage for 60 seconds.
 
-Tiếp tục mát xa như vậy trong vòng 60s.
+Do this whenever you can. At least twice a day.
 
-Thực hiện động tác này bất cứ khi nào bạn có thể. Ít nhất là 2 lần/ngày.
- 
-2. Thổi Không Khí Bằng Miệng
+Blowing Air With Oral
+This action will affect the muscles around the mouth and cheeks, force the muscles to work to make the slimmer.
 
-Động tác này sẽ tác động lên các cơ ở xung quanh miệng và má, bắt các cơ phải hoạt động giúp cho mặt thon gọn hơn. 
+You may take some time to get used to this exercise but once you are familiar with it, this will be one of the most effective ways to lose weight.
 
-Bạn có thể mất một khoảng thời gian để quen với bài tập này nhưng khi đã quen và thành thạo, đây sẽ là một trong số những cách hiệu quả nhất để làm giảm béo mặt.
+Tighten and firm lips
 
-Mím chặt và chu môi
+Inflate the cheeks so that the inside and the bottom are inflated. Hold this position for 10 seconds.
 
-Thổi phồng má để vùng trong và dưới đều phồng lên. Giữ tư thế này trong 10s.
+Push the air into the left cheek and hold for 10 seconds.
 
-Đẩy không khí sang má trái và giữ trong 10s.
+Push the air to the right cheek and keep it for 10 seconds.
 
-Đẩy không khí sang má phải và tiếp tục giữ trong 10s.
+Repeat the above steps 10-20 times.
 
-Lặp lại các bước trên 10-20 lần.
+Perform this exercise at least twice a day.
 
-Thực hiện bài tập này ít nhất 2 lần/ngày.
- 
-3. Bài Tập “Mặt Cá”
+"Fish Face"
+This is an easy and perfect exercise for you to tighten the cheeks by stretching the facial muscles by stimulating and lifting the muscles to make the face more compact.
 
-Đây là bài tập dễ và hoàn hảo cho bạn để làm thon gọn cơ má bằng cách kéo giãn các cơ mặt qua đó kích thích và nâng cơ giúp cho gương mặt trở nên thon gọn hơn.
+Squeeze your cheeks and cheeks. Now your face looks like a fish.
 
-Hóp chặt má lại và chu môi. Lúc này khuôn mặt bạn trông giống như một chú cá vậy.
+Hold this position for 30 seconds, rest a little, then exhale, then repeat the movement for 30 seconds.
 
-Giữ tư thế này trong vòng 30 giây, nghỉ một chút, rồi thở ra, rồi tiếp tục lặp lại động tác trong 30 giây nữa.
+Repeat 10 in one episode.
 
-Lặp lại 10 cái trong một lần tập.
+Make this move as much as possible during the day. At least twice a day
 
-Thực hiện động tác này nhiều nhất có thể trong ngày. Ít nhất là hai lần một ngày
- 
-4. Bài Tập “Miệng Cá”
+"Fish Oral"
+This is the opposite of the exercise, which requires you to activate the facial muscles in the opposite direction.
 
-Đây là động tác trái ngược hoàn toàn với bài tập trên, đòi hỏi bạn phải hoạt động kích thích các cơ mặt theo chiều ngược lại.
+By blasting the air out of the cheek, it not only stimulates the facial muscles, but also reduces fat in the cheek area.
 
-Bằng cách thổi không khí trong má ra ngoài, nó không chỉ kích thích các cơ mặt, mà còn giảm được mỡ ở vùng dưới gò má.
+Vacuum the air by mouth, then push the cheeks up.
 
-Hút không khí bằng miệng, rồi đẩy 2 má căng lên.
+Continue to hold the position for 30 seconds.
 
-Tiếp tục giữ tư thế trong 30s.
+Relax and blow air for 30 seconds
 
-Thư giãn và thổi hết không khí trong 30s
+Performs 10 moves / cycle.
 
-Thực hiện động tác 10 lần/chu kỳ.
+Make this move as much as possible during the day. At least two cycles a day.
 
-Thực hiện động tác này nhiều nhất có thể trong ngày. Ít nhất là hai chu kỳ một ngày.
- 
-5. Bài Tập“Kéo & Cười”
+"Drag & Laugh"
+This requires you to push your cheeks gently and smile brightly to stretch the muscles and prevent fat from accumulating on your face.
 
-Động tác này yêu cầu bạn phải đẩy má lên một cách nhẹ nhàng và cười thật tươi để kéo căng các cơ và ngăn mỡ tích tụ trên khuôn mặt.
+Gently stretches the muscles to prevent formation and deep wrinkles. A smile will help the cheek, the muscles and cheek bones more prominent.
 
-Chỉ nhẹ nhàng kéo căng các cơ để ngăn ngừa hình thành và khiến các vết nhăn hằn sâu hơn. Nụ cười tươi sẽ giúp cho má, các cơ và xương gò má nổi bật hơn.
+Apply palms to the cheek gently stretch the face in the direction from the bottom up.
 
-Áp lòng bàn tay vào má nhẹ nhàng kéo căng khuôn mặt theo chiều từ dưới đi lên.
+Laughing loud and wide.
 
-Cười thật tươi và rộng.
+Hold this position for 5 seconds, do not smile anymore but your palms still stretch on your cheeks, and smile again 10 times for every 5 seconds.
 
-Giữ tư thế này trong 5 giây, không cười nữa tuy nhiên lòng bàn tay của bạn vẫn kéo căng trên má, và lặp lại mỉm cười 10 lần cho mỗi 5 giây.
+Relax your hands to help with fatigue and do 5 moves each time.
 
-Thư giãn tay cho đỡ mỏi và thực hiện động tác 5 cái mỗi lần.
+Done twice a day.
 
-Thực hiện 2 lần mỗi ngày.
+Pork Tong Training
+This exercise works to increase the flexibility and flexibility of the facial muscles, while reducing facial fat.
 
-6. Bài Tập Thè Lưỡi
+Lick your tongue firmly. Your cheeks will feel tight, tight at the moment.
 
-Bài tập này có tác dụng làm tăng tính dẻo dai và linh hoạt của các cơ trên khuôn mặt, đồng thời giảm mỡ mặt.
+Hold this position for 10 seconds, then relax.
 
-Hãy thè lưỡi đồng thời hóp má thật chặt. Phần gò má của bạn sẽ cảm thấy căng, thắt chặt lúc này.
+Repeat 20 times each.
 
-Giữ vị trí này trong 10s, rồi thư giãn.
+Make this move as much as possible during the day. At least twice a day.
 
-Lặp lại 20 cái mỗi lần.
+"Chin lift"
+One of the worst things about fat deposits on the face is that they are usually concentrated around the chin and neck. Chin is the place where the formation of fat twice, three times more than other areas of the body.
 
-Thực hiện động tác này nhiều nhất có thể trong ngày. Ít nhất là hai lần một ngày.
- 
-7. Bài Tập “Nâng cằm”
+Keep your face and neck in a straight and upright position towards the ceiling for 1 second and then lower back to your original posture.
 
-Một trong những điều tồi tệ nhất khi có mỡ thừa tích tụ trên khuôn mặt, đó là chúng thường tập trung ở phần xung quanh cằm và cổ. Cằm là nơi thể hiện rõ nhất sự hình thành của mỡ gấp hai, gấp ba lần các vùng khác trên cơ thể.
+Repeat 20 times.
 
-Giữ cho mặt và cổ ở tư thế thẳng và ngửa cổ hướng về phía trần nhà trong vòng 1 giây rồi hạ xuống sau đó trở về tư thế ban đầu.
+Make this move as much as possible during the day. At least twice a day.
 
-Lặp lại 20 lần.
+Eye Cream
+This will stretch the muscles and jaw, force them to work, dissolve and gradually reduce the fat accumulation.
 
-Thực hiện động tác này nhiều nhất có thể trong ngày. Ít nhất là hai lần một ngày.
- 
-8. Động Tác Mím Môi
+Bend your eyes towards the ceiling
 
-Động tác này sẽ kéo giãn cơ hàm và cằm, bắt chúng hoạt động, đánh tan và giảm dần đám mỡ thừa tích tụ.
+Squeeze your upper and lower lips inwards until you see the chin and neck muscles tighten.
 
-Ngửa đầu hướng mắt về phía trần nhà
+Hold for 10 seconds, then relax.
 
-Mím môi trên và dưới của bạn vào trong cho đến khi bạn thấy cơ cằm và cổ căng lên.
+Repeat this action 20 times
 
-Giữ tư thế trong vòng 10s, rồi thư giãn.
+Make this move as much as possible during the day. At least twice a day.
 
-Lặp lại 20 lần động tác này
+"Turn Head"
+This is an exercise for the entire head, especially the chin and jaw.
 
-Thực hiện động tác này nhiều nhất có thể trong ngày. Ít nhất là hai lần một ngày.
- 
-9. Động tác “Quay đầu”
+When doing this exercise regularly, you can significantly reduce fat in the chin, reduce and firm chin.
 
-Đây là bài tập bắt các cơ cho toàn bộ phần đầu, đặc biệt là vùng cằm và hàm.
+This also stimulates blood circulation and provides more energy to continue your workout.
 
-Khi thực hiện động tác này thường xuyên, bạn có thể giảm được đáng kể mỡ thừa ở cằm, thu gọn và làm săn chắc nọng cằm.
+Look straight ahead and close your eyes.
 
-Động tác này còn kích thích sự lưu thông máu và cung cấp nhiều năng lượng hơn để tiếp tục quá trình tập luyện của bạn.
+Tilt your head to the side, slowly toward the ceiling, tilt your head to the left, and return to its original position. Do the same with the right.
 
-Hãy nhìn thẳng về phía trước và nhắm mắt lại.
+Continue to do it 10 times, then relax
 
-Nghiêng đầu sang một bên, từ từ hướng về phía trần nhà, nghiêng đầu sang trái, rồi quay về vị trí ban đầu. Làm tương tự với bên phải.
+Made 10 more times
 
-Tiếp tục thực hiện mỗi bên 10 lần, rồi thả lỏng
+Perform this action twice a day
 
-Thực hiện thêm 10 lần nữa
+The movements are quite gentle so you can do as many times as you want. If you want to own a slender face, wait for anything else without embarking on right now?
 
-Thực hiện động tác này 2 lần/ngày
+TIPS FOR YOU:
 
-Những động tác trên khá nhẹ nhàng vì vậy mà bạn có thể thực hiện bao nhiêu lần tùy theo mong muốn của mình. Nếu bạn muốn sở hữu một gương mặt thon gọn rạng rỡ, còn chần chờ gì nữa mà không bắt tay thực hiện ngay nhỉ?
+Cut down on the amount of food loaded into the body, fried foods and high sodium foods cause the body and the face to swell. Eat more clean foods, less processed foods and high fiber foods. Foods such as vegetables and fruits are essential for weight loss. A healthy diet is the key to slimming down the whole body and making the face more compact in particular.
 
-LỜI KHUYÊN CHO BẠN:
+Avoid eating anything before going to sleep. Make sure you do a few exercises during the time after dinner and before going to sleep. A light workout will fit perfectly.
 
-Cắt giảm lượng thức ăn nạp vào cơ thể, thực phẩm chiên và các loại thực phẩm có hàm lượng Natri cao làm cơ thể và mặt sưng phù nước. Ăn nhiều thực phẩm sạch, ít qua chế biến và thực phẩm giàu chất xơ. Các thực phẩm như rau xanh và hoa quả rất cần thiết cho quá trình giảm cân. Một chế độ ăn uống lành mạnh là chìa khóa để giảm béo cả cơ thể nói chung và làm cho khuôn mặt thon gọn hơn nói riêng.
+Avoid high sugar and carbonated drinks, drink plenty of water to keep your face radiant, to neutralize toxins in your body.
 
-Tránh ăn bất cứ thứ gì trước khi đi ngủ. Hãy chắc chắn rằng bạn sẽ tập một vài bài thể dục trong khoảng thời gian sau khi ăn tối và trước khi đi ngủ. Một bài tập nhẹ nhàng sẽ hoàn toàn phù hợp.
+Get involved in more physical activities. Work out in the gym or some aerobic exercise like jogging, running, swimming and dancing and always use the stairs instead of the elevator.
 
-Tránh uống đồ có nhiều đường và có ga, uống nhiều nước để giữ cho khuôn mặt luôn hồng hào rạng rỡ, giải các độc tố trong cơ thể.
-
-Tham gia vào các hoạt động thể chất nhiều hơn. Tập thể hình ở các phòng Gym hay một số bài tập Aerobic như chạy bộ, chạy, bơi lội và nhảy múa và luôn luôn dùng thang bộ thay vì thang máy.
-
-Hãy cười thật nhiều! Điều đó sẽ giúp cho các cơ mặt và hàm được giãn ra và săn chắc hơn.
+Let's laugh a lot! This will help the muscles in the face and jaw expand and tighten.

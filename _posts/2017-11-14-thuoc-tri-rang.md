@@ -1,35 +1,35 @@
 ---
 published: true
-title: Bài thuốc quá dễ trị răng lung lay ê buốt, tới già răng vẫn không rụng
+title: The drug is too easy to cure tooth sensitivity, tooth age still does not fall
 ---
 
-Đau răng, sâu răng hoặc răng lung lay, ê buốt là nỗi khổ của hầu hết mọi người ở đủ mọi độ tuổi. Vì thế, mọi nhà nên chuẩn bị hũ rượu này để xử lí các vấn đề về răng ngay tại nhà.
+Toothache, tooth decay, or loose teeth are the suffering of most people of all ages. Therefore, every home should prepare this jar to handle dental problems at home.
 
 ![ten buc hinh](https://i.imgur.com/kB6sjYG.png "ten buc hinh")
 
-Bài thuốc chữa đau răng từ rượu cau bắt nguồn từ thời ông cha ta, có nguồn gốc ở Việt Nam.
+The toothache remedies that came from the time of our father, originated in Vietnam.
 
-Ngày xưa, nhiều người hay nhai trầu, nhờ đó mà răng óng ả, chắc khỏe cho tới tận lúc lâm chung mà không rụng chiếc nào. Từ đó, tác dụng của cau đối với răng lợi được phát hiện.
+In the past, many chewing or chewing, so that teeth are shiny, healthy until the time of death without losing any. From there, the effect of isch on gums was discovered.
 
-Ở Việt nam, một số bệnh viện đa khoa và các phòng khám nha khoa cũng thừa nhận rượu cau là một phương pháp trị sâu răng, viêm lợi hiệu quả
-Theo các chuyên gia, quả cau có vị chát, cay, tính ẩm, được nghiên cứu là có chứa nhiều chất có tính diệt khuẩn, thanh trùng, chính vì thế quả cau cũng được sử dụng trong việc trị giun sán, làm cho giun sán không bám được vào thành ruột. Rượu trắng có nồng độ cồn cao, có tính sát khuẩn, khi kết hợp với quả cau sẽ làm gia tăng tính diệt khuẩn, đặc biệt tốt trong việc trị sâu răng, làm răng chắc khỏe.
+In Vietnam, some general hospitals and dental clinics also acknowledge that coconut liquor is a good way to cure tooth decay, gingivitis. According to experts, the fleshy taste, spicy, moist, is The research is to contain many biocides, pasteurization, so that the palm is also used in the treatment of helminths, making worms do not stick to the intestinal wall. White alcohol has a high alcohol content, antiseptic, when combined with the palm will increase the bactericidal properties, especially good for decay and strong teeth.
 
-Cách làm rượu cau như sau:
+The way to make wine is as follows:
 
-Bổ trái cau làm tư, tách lấy hạt cau (ruột cau), cho vào bình đã đựng sẵn rượu để cau không bị thâm đen. Nếu bổ hạt cau ra mà không ngâm rượu ngay, miếng cau sẽ thâm nhìn không đẹp mắt.
+Add the palm leaves, split the seeds of beet (beet root), put into the container containing alcohol to not be blackened. If the grains are not scooped up immediately, the palm will look dark not beautiful.
 
-Khi chọn rượu ngâm cau, các bạn nên chọn rượu trắng, loại mới nấu xong càng tốt.
+When choosing alcohol, you should choose white wine, new cooking finished as possible.
 
-Sau khi ngâm 2 tháng, bạn chắt bớt rượu ra 1 chai mới để lúc cần sẽ dùng chai này, sau đó thêm rượu trắng vào hũ cũ, để càng lâu càng tốt.
+After soaking for 2 months, you cut down the wine to a new bottle when needed to use this bottle, then add white wine to the old jar, for as long as possible.
 
-Thành quả ngâm rượu cau.
+The result of soaking wine.
 
-Bạn tách rượu ra 1 chai để dùng, còn phần ruột cau vẫn tiếp tục ngâm.
+You take a bottle of wine to use, but the intestines continue to soak.
 
-Cách dùng rượu cau:
+How to use wine:
 
-Sau khi đánh răng sạch, bạn ngậm một chút rượu cau trong 15 phút rồi nhổ đi, sau đó kiêng súc miệng, không uống nước hoặc ăn gì trong 30 phút. Mỗi ngày ngậm rượu cau 2 lần, bạn sẽ không còn đau nhức răng lợi nữa.
+After brushing your teeth, take a few drops of caffeine for 15 minutes and then spit away, then abstain from mouth, do not drink or eat anything for 30 minutes. Every day you drink alcohol two times, you will not have toothache anymore.
 
-Về ngâm rượu cau, các bạn có bao nhiêu cau thì ngâm bấy nhiêu, đừng ngâm ít quá tác dụng sẽ không cao. Rượu cau sau khi ngâm 1 tháng sẽ có màu vàng đẹp mắt. Lúc này, các bạn có thể sử dụng được rồi. Nếu vừa ngâm xong đã ngậm thì chưa có tác dụng đâu. Phụ nữ có thai, cho con bú, phải kiêng kháng sinh mà bị đau răng lợi thì nên ngậm rượu cau.
+About soaking wine, how much you have soaked, so do not soak so little effect will not be high. After a month, it will be a beautiful yellow color. At this point, you can use it. If you have just soaked it is not effective. Pregnant women, breast-feeding, antibiotic abstinence with toothache advantage should be sober.
 
-Ban đầu khi dùng rượu cau có thể bạn sẽ chưa quen vì vị rượu khá cay, bạn có thể pha loãng với nước và súc miệng. Sau này quen dần thì dùng rượu cau nguyên chất sẽ có tác dụng mạnh hơn.
+Initially, when you use cane wine, you may not be familiar with the spicy wine, you can dilute with water and gargle. After that, the use of pure white wine will have a stronger effect.
+

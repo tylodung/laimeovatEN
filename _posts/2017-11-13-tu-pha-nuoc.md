@@ -1,103 +1,102 @@
 ---
 published: true
 hidden: false
-title: Tự pha nước uống buổi sáng giúp đánh bay BỤNG BIA lâu năm
-custom_excerpt: Bụng là vùng dễ tích mỡ nhất và cũng là bộ phận ít hoạt động nhất của cơ thể. Chính bởi vậy khi béo, bụng thường tăng size đầu tiên. Các nguyên nhân gây béo bụng rất đa dạng nhưng chủ yếu do chế độ ăn không hợp lý, ăn quá nhiều tinh bột và đường, lười vận động, phụ nữ sau sinh nở…
+title: Dissolve in the morning drink water to fly BEAST
+custom_excerpt: The abdomen is the easiest and most active part of the body. Therefore, when fat, belly usually increase in size. The causes of abdominal obesity are varied but mainly due to unreasonable diet, excessive eating of starch and sugar, lazy exercise, postmenopausal women ...
+
 ---
-Không mời mà đến, nhưng đuổi không chịu đi, mỡ bụng tích tụ lâu năm rất khó loại bỏ, bởi theo thời gian, mô mỡ sẽ tích tụ dày lên, tạo thành màng bám mỡ nên bụng cũng to lên. Các liên kết mỡ nằm sâu gắn chặt với nhau.
+Unwanted to come, but chasing not go away, belly fat accumulation for years is difficult to remove, because over time, fat tissue will accumulate thickening, forming fatty deposits so the belly is also big. Fat bonds are deeply embedded in each other.
 
-Dưới đây là 5 thức uống bạn nên bổ sung vào buổi sáng để giúp bạn ăn ít lại mà vẫn có đầy đủ calo để hoạt động cả ngày.
+Here are five drinks you should add in the morning to help you eat less and still have enough calories to work all day.
 
-**Công thức 1:**
+Formula 1:
 
-Nguyên liệu:
+Material:
 
-Một quả dưa chuột
+A cucumber
 
-2 quả chanh
+2 lemons
 
+2 tablespoons ginger
 
-2 thìa gừng nạo
+A few mint leaves.
 
-Vài lá bạc hà.
+Making:
 
-Cách làm:
+Squeeze cucumber juice and lemon juice
 
-Ép lấy nước dưa chuột và chanh
+Add minced mint leaves and ginger.
 
-Thêm lá bạc hà đã băm nhỏ và gừng nạo.
+You can add water to the filter, stirring before drinking. Drink this juice every morning for 15 days to dissolve belly fat.
 
-Bạn có thể cho thêm nước lọc, khuấy đều trước khi uống. Uống nước ép này vào mỗi buổi sáng trong 15 ngày để tan mỡ bụng.
+Formula 2:
 
-**Công thức 2:**
+Material:
 
-Nguyên liệu:
+3 cloves garlic
 
-3 tép tỏi
+A tablespoon of honey
 
-Một thìa canh mật ong
+Lemon sliced ​​fresh.
 
-Chanh tươi thái lát.
+Making:
 
-Cách làm:
+Take a glass of warm water, add lemon juice and honey and stir.
 
-Lấy một cốc nước ấm, thêm nước cốt chanh và mật ong vào rồi khuấy đều.
+Sprinkle garlic then drink this lemon juice. If you do not like chewing garlic, you can mix garlic cloves crushed in honey lemon juice and drink when empty stomach in the morning.
 
-Nhai tỏi sau đó uống nước chanh mật ong này. Nếu bạn không thích nhai tỏi thì có thể trộn tép tỏi nghiền nát trong nước chanh mật ong và uống khi dạ dày trống vào buổi sáng.
+Formula 3:
 
-**Công thức 3:**
+Material:
 
-Nguyên liệu:
+100g horseradish
 
-100g cải ngựa
+A little ginger
 
-Một ít gừng
+3 slices of lemon
 
-3 lát chanh
+4 tablespoons of honey
 
-4 thìa canh mật ong
+2 teaspoons cinnamon
 
-2 thìa cà phê quế.
+Making:
 
-Cách làm:
+Grilled horseradish and ginger for paste.
 
-Xay cải ngựa và gừng cho sền sệt.
+Add honey, lemon and cinnamon powder
 
-Thêm mật ong, chanh và bột quế
+Mix with water and drink before breakfast.
 
-Pha với nước lọc và uống trước khi ăn sáng.
+Formula 4:
 
-**Công thức 4:**
+Material:
 
-Nguyên liệu:
+Vera
 
-Nha đam
+Honey.
 
-Mật ong.
+Making:
 
-Cách làm:
+Aloe Vera is one of the best juices that can dissolve belly fat. It also cleanses the intestines and prevents bloating.
 
-Nước nha đam là một trong những loại nước ép tốt nhất có thể làm tan mỡ bụng. Nó cũng làm sạch ruột và ngăn ngừa đầy hơi.
+Dilute 2 tablespoons of water in a glass of water.
 
-Pha loãng 2 thìa nước ép nha đam trong một ly nước.
+Add more honey. Drink this water one hour before breakfast.
 
-Cho thêm mật ong. Uống nước này một giờ trước bữa ăn sáng.
+Formula 5:
 
-**Công thức 5:**
+Material:
 
-Nguyên liệu:
+Apple cider vinegar
 
-Giấm táo
+A lemon
 
-Một quả chanh
+Cinnamon
 
-Bột quế
+Honey.
 
-Mật ong.
+Making:
 
-Cách làm:
+Take a glass of water, add two tablespoons of apple cider vinegar, lemon juice Sprinkle a little cinnamon powder and add a little honey. Drink every morning to lose weight and beat the belly fat effectively.
 
-Lấy một ly nước lọc, thêm hai thìa canh giấm táo, nước cốt chanh
-Rắc một chút bột quế và thêm ít mật ong vào. Uống vào mỗi sáng để giảm cân và đánh bay mỡ bụng hiệu quả.
-
-Chúc các bạn giảm cân thành công.
+Wish you successful weight loss.

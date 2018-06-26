@@ -1,32 +1,28 @@
 ---
 published: true
 hidden: false
-title: Mắc 5 thói quen khi ngủ này thì coi chừng sức khỏe có vấn đề
-custom_excerpt: Cơ thể sẽ tranh thủ lúc bạn ngủ say giấc mà phát ra những tín hiệu rõ ràng nhất về sức khỏe đấy!
+title: Get 5 habits when you sleep, watch out for health problems
+custom_excerpt: The body will endure when you sleep well that emit the most obvious signs of health it!
+
 ---
-Cơ thể sẽ tranh thủ lúc bạn ngủ say giấc mà phát ra những tín hiệu rõ ràng nhất về sức khỏe đấy!
+The body will endure when you sleep well that emit the most obvious signs of health it!
 
-1. Có thể ngủ hơn 12 tiếng liên tục
+Can sleep more than 12 hours continuously
+Sleeping over 12 hours is not a sign of lack of sleep or fatigue. With such long sleep, your body is likely to have an infection or problems with the thyroid gland.
 
-Ngủ li bì quá 12 tiếng không phải dấu hiệu của việc thiếu ngủ hay mệt nhọc. Với lượng ngủ dài như vậy, cơ thể bạn đang có thể bị nhiễm trùng hoặc có vấn đề ở tuyến giáp.
+Hypothyroidism is a common condition in women over the age of 60 and it is often overlooked as a consequence of the aging process, resulting in fatigue and rapid depletion of organs. Yet, many young people are also facing the disease, starting with sleep over 10 hours.
 
-Suy giáp là chứng bệnh thường gặp ở phụ nữ trên 60 tuổi và nó thường bị xem nhẹ, coi như hệ quả của quá trình lão hóa, kéo theo tình trạng mệt mỏi rã rời và sự suy yếu nhanh chóng của các cơ quan. Dù thế, rất nhiều người trẻ cũng đang đối mặt với căn bệnh này, bắt đầu từ việc ngủ những giấc ngủ dài trên 10 tiếng.
+Always wake up at a certain time
+It sounds good, but it can be a sign of a biological disorder when your body automatically gets up at a certain time in the morning - no matter how late you are. This not only makes the body fatigue due to lack of sleep, it also affects the activities of the digestive organs, the nervous throughout that day.
 
-2. Luôn thức dậy vào một giờ nhất định
+The best way to get your body back in shape is to spend a day "sleeping": You go to bed early, turn off the lights so dark and burn the oil for a deep sleep and quality.
 
+Must have sound or TV to sleep
+Do you have the habit of listening to music while you sleep? Or watch a movie before bed? This is causing stress to your body, making it impossible to sleep without the sound effects. To get rid of this bad habit, stop using electronic devices before bed - including the phone. Sleeping in the room is dark and without sound, after a few days you will see results: You sleep easier, sleep deeper, brighten up to help with fatigue and headaches.
 
-Nghe thì có vẻ tốt, nhưng thói quen này có thể là biểu hiện của việc rối loạn sinh học khi cơ thể tự động dậy vào một giờ nhất định trong buổi sáng – mặc kệ việc bạn thức khuya đến đâu. Việc này không chỉ khiến cơ thể mệt mỏi do thiếu ngủ, mà nó còn ảnh hưởng đến hoạt động của các cơ quan tiêu hóa, thần kinh trong suốt ngày hôm đó.
+Stretching, rolling while sleeping
+This sleep disorder is actually a sign of overactive thyroid gland, which causes the body to lose control of the muscles. You need to relax before bed to regulate thyroid activity. Avoid heavy labor or watching movies, excessive entertainment before bed. An emotionally stable mind will help you sleep better.
 
-Cách tốt nhất để đưa cơ thể về khuôn khổ là hãy dành ra một ngày để “tập ngủ”: Bạn hãy đi ngủ sớm, tắt đèn thật tối và đốt tinh dầu giúp có một giấc ngủ sâu và chất lượng hơn.
+Wake up in the middle of the night and do not sleep again
+Here again is the syndrome of the calf! Suddenly, the calves sometimes experience excessive tension, refusing to rest, causing it to "urge" the body to wake up in the middle of the night. Usually, you just relax and avoid strong motion before bedtime, but be careful if the condition persists even if you find a way to overcome it - as it can be a sign of heart disease, heart attack near. Get help from a doctor if this situation persists long term you!
 
-3. Phải có âm thanh hoặc TV mới ngủ được
-
-Bạn có thói quen nghe nhạc trong khi ngủ không? Hoặc xem một bộ phim trước khi ngủ? Điều này đang gây ra stress cho cơ thể bạn, khiến nó không thể ngủ mà thiếu đi các tác động âm thanh. Muốn loại bỏ thói quen xấu này, hãy dừng việc sử dụng các thiết bị điện tử trước khi ngủ – bao gồm cả điện thoại. Ngủ trong phòng thật tối và không có âm thanh, sau vài ngày bạn sẽ thấy kết quả: Bạn ngủ dễ hơn, giấc ngủ sâu hơn, sáng ra đỡ mệt mỏi và đau đầu hơn.
-
-4. Đạp chăn, lăn lộn khi ngủ
-
-Tướng ngủ rất “hỗn” này thật ra là dấu hiệu của việc tuyến giáp hoạt động quá mức, khiến cơ thể không kiểm soát được các cơ bắp. Bạn cần thư giãn trước khi ngủ để điều tiết hoạt động của tuyến giáp. Tránh lao động nặng hoặc xem phim, giải trí quá mức trước khi đi ngủ. Một tâm trí ổn định về mặt cảm xúc sẽ giúp bạn ngủ ngon hơn.
-
-5. Thức dậy giữa đêm và không ngủ lại được nữa
-
-Đây lại là hội chứng của các bắp chân! Nghe bất ngờ nhưng các bắp chân đôi khi gặp phải tình trạng căng quá mức, không chịu nghỉ ngơi, khiến nó “thúc giục” cơ thể tỉnh dậy vào giữa đêm. Thông thường bạn chỉ cần thư giãn và tránh vận động mạnh trước khi ngủ, nhưng hãy cẩn thận nếu tình trạng này vẫn kéo dài dù đã tìm đủ cách khắc phục – vì nó có thể là dấu hiệu của bệnh tim, thậm chí là một cơn đau tim gần kề. Hãy tìm đến sự trợ giúp của bác sĩ nếu tình trạng này kéo dài dai dẳng bạn nhé!
