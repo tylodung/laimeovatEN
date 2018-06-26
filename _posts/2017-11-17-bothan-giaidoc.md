@@ -2,7 +2,7 @@
 published: true
 title: 3 points on the body massage daily will help kidney, detoxification, tranquility
 tags: setup hardware
-custom_excerpt:Quan Nguyen is the acupuncture point of the three syllables and marmal, is considered ancient place "vowel and yang intersex in the body." This tale focuses on the essence and plays an especially important role.
+custom_excerpt: Quan Nguyen is the acupuncture point of the three syllables and marmal, is considered ancient place "vowel and yang intersex in the body." This tale focuses on the essence and plays an especially important role.
 
 ---
 
