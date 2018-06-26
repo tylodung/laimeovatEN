@@ -1,80 +1,78 @@
 ---
 published: true
-title: 3 điểm trên cơ thể xoa bóp hàng ngày sẽ giúp bổ thận, giải độc, an thần
+title: 3 points on the body massage daily will help kidney, detoxification, tranquility
 tags: setup hardware
-custom_excerpt: Quan Nguyên là huyệt hội của ba kinh âm và mạch nhâm, được cổ nhân coi là nơi “nguyên âm và nguyên dương giao nhau trong cơ thể”. Huyệt vị này tập trung nguyên khí và có vai trò đặc biệt quan trọng.
+custom_excerpt:Quan Nguyen is the acupuncture point of the three syllables and marmal, is considered ancient place "vowel and yang intersex in the body." This tale focuses on the essence and plays an especially important role.
+
 ---
 
-1. Huyệt Quan Nguyên
+Quan Nguyen
+According to the "Chinese Medicine Department," this dessert is considered the door of the raw material, so it is called Quan Yuan.
 
-Theo “Trung y cương mục”, huyệt vị này được coi là cửa (Quan) của nguyên khí (Nguyên), vì vậy nó có tên gọi là Quan Nguyên.
+How to locate:
 
-Cách xác định vị trí:
+The graft is located on the backbone between the body, below the navel, or at the 3/5 of the upper and lower end of the median line on the muzzle and the navel.
 
-Huyệt nằm trên đường trục giữa cơ thể, dưới rốn 3 thốn hoặc ở điểm nối 3/5 trên và 2/5 dưới của đường nối điểm giữa bờ trên xương mu và rốn.
+Function:
 
-Tác dụng:
+Quan Nguyen is the acupuncture point of the three syllables and marmal, is considered ancient place "vowel and yang intersex in the body." This tale focuses on the essence and plays an especially important role.
 
-Quan Nguyên là huyệt hội của ba kinh âm và mạch nhâm, được cổ nhân coi là nơi “nguyên âm và nguyên dương giao nhau trong cơ thể”. Huyệt vị này tập trung nguyên khí và có vai trò đặc biệt quan trọng.
+Constantly rub massage Quan Nguyen will achieve the use of renal, gas, reabsorption, low denaturation and enhance immunity.
 
-Thường xuyên xoa bóp huyệt Quan Nguyên sẽ đạt được công dụng bồi thận, bổ khí, hồi dương, khử hàn thấp và tăng cường khả năng miễn dịch.
+Quan Nguyen massage also treat diseases of menstruation, diuretic, impotence, abdominal pain, diarrhea, urinary tract diseases, support treatment of infertility, improve resistance, nourish the body , treatment for general weakness and damage.
 
-Xoa bóp huyệt Quan Nguyên còn trị các bệnh về kinh nguyệt, di mộng tinh, liệt dương, bụng dưới đau, tiêu chảy, các bệnh về đường tiểu, hỗ trợ điều trị vô sinh, nâng cao sức đề kháng, bồi bổ cơ thể, điều trị suy nhược toàn thân và các chứng hư tổn.
+Modern research has shown that acupuncture has special effects that improve hemodynamics, stabilize and increase the SI and LVSWI of the heart muscle.
 
-Nghiên cứu hiện đại cho thấy, châm cứu huyệt quan nguyên đặc biệt có tác dụng cải thiện huyết động học, làm ổn định và gia tăng chỉ số SI và LVSWI của cơ tim.
+In addition, it enhances coronary circulation, enhances endurance in oxygen-deficient conditions, improves and regulates immunity.
 
-Ngoài ra, nó còn có tăng cường lưu lượng tuần hoàn vành, nâng cao khả năng chịu đựng của cơ thể trong điều kiện thiếu ôxy, cải thiện và điều tiết miễn dịch.
+Massage:
 
-Cách xoa bóp:
-
-Dùng tay xoa bóp hoặc dùng ngải cứu đều có thể kích thích huyệt Quan Nguyên. Để đạt được hiệu quả tốt nhất, bạn nên dùng tay ấn vào vị trí của huyệt hằng ngày trước khi đi ngủ.
+Using hand massage or wormwood can stimulate Quan Nguyen. To achieve the best results, you should press your hand to the point of the day before going to bed.
 
 ![ten buc hinh](https://static.phunugiadinh.vn/wp-content/uploads/2017/09/1-1485448781166.jpg "ten buc hinh")
 
-2. Huyệt Hợp Cốc
+Vented Brew Hop
+Tombs in the hippogriff area, shaped like the meeting place (Hop) of the mouth of the cave (Cup) should be called Hop Coc or Hao.
 
-Huyệt ở vùng hổ khẩu, có hình dạng giống như chỗ gặp nhau (Hợp) của miệng hang (Cốc) nên có tên gọi là Hợp Cốc hoặc Hổ Khẩu.
+How to locate:
 
-Cách xác định vị trí:
+Grab yourself: Clasp your fingers on the hand, then apply the thumb to the index finger to form a pile of muscle, which is the grave. Use your other hand to press the numbness to the tip of the little finger, then you have touched the correct point.
 
-Tự lấy huyệt cho mình: Khép khít các ngón tay trên bàn tay, sau đó áp ngón cái vào ngón trỏ tạo thành một khối cơ nổi lên, đó là vùng huyệt. Dùng tay kia ấn day vào thấy các giác tê tới tận đầu ngón tay út, lúc đó bạn đã sờ đúng huyệt.
+Make acupressure for others: Do shaking hands with friends (the right hand to shake the right hand of the other), folded up to the size of his thumb, the thumb will place their right acupuncture points. .
 
-Lấy huyệt cho người khác: Làm động tác bắt tay thân hữu với người đó (tay phải mình bắt tay phải của người kia), co gấp hết cỡ ngón tay cái của mình lại, đầu ngón tay cái sẽ đặt đúng vùng huyệt của họ.
+When giving a kiss to someone else, they will feel like touching a grain like rice.
 
-Khi day huyệt Hợp Cốc cho người khác, bản thân mình sẽ có cảm giác đụng vào 1 hạt như hạt gạo.
+Uses:
 
-Công dụng:
+In view of Chinese medicine, CoC has a direct influence on the digestive system and the muscles. This massage is very helpful in treating alcohol poisoning and improving the digestive system.
 
-Theo quan điểm của Trung y, Hợp Cốc có ảnh hưởng trực tiếp tới hệ tiêu hóa và các cơ bóp. Xoa bóp huyệt vị này rất hữu ích trong việc chữa trị ngộ độc rượu và cải thiện hệ tiêu hóa.
+Co Cigarette also has analgesic effect. When you see headaches, you can use this acupuncture to reverse the pain.
 
-Huyệt Hợp Cốc còn có tác dụng giảm đau. Khi thấy cơ thể xuất hiện các triệu chứng đau đầu, bạn có thể bấm huyệt này để đẩy lùi cơn đau.
+Frequent irritation of the cortex will help the body enhance immunity, heat, detoxification, sedative, and support treatment of many "minor anomalies" such as headache, heat mouth, toothache, fever.
 
-Thường xuyên kích thích huyệt Hợp Cốc sẽ giúp cơ thể tăng cường khả năng miễn dịch, thanh nhiệt, giải độc, an thần, đồng thời hỗ trợ điều trị nhiều “bệnh vặt” như đau đầu, nhiệt miệng, đau răng, sốt…
+Massage:
 
-Cách xoa bóp:
+Use the thumb to press the grasp of the other hand, the first few rounds using moderate force, then press the deeper, maintain 3-5 minutes to change hands.
 
-Dùng ngón tay cái ấn vào huyệt Hợp Cốc của bàn tay còn lại, vài vòng đầu tiên dùng lực vừa phải, sau đó ấn day sâu dần, duy trì từ 3-5 phút thì đổi tay.
-
-Cần lưu ý rằng, thao tác ấn day huyệt Hợp Cốc không sử dụng đối với phụ nữ đang mang thai.
+It is important to note that the manipulation of the Hop Cup is not used in pregnant women.
 
 ![ten buc hinh](https://static.phunugiadinh.vn/wp-content/uploads/2017/09/hop-coc-1496130847880-1496130881759.jpg "ten buc hinh")
 
-3. Huyệt Nội Quan
+Internal
+According to "Chinese medicine department," this point has the effect of treating the chest, located in the arteries of the hand should be called internal.
 
-Theo “Trung y cương mục”, huyệt vị này có tác dụng trị bệnh ở ngực, lại nằm ở khe mạch trên tay nên được gọi là Nội Quan.
+How to locate:
 
-Cách xác định vị trí:
-
-Huyệt Nội Quan nằm ở mặt trước cẳng tay, giữa hai gân cơ gan tay lớn và gan tay bé (gấp bàn tay vào cẳng tay và nghiêng bàn tay vào phía trong cho nổi rõ khe cơ), trên nếp gấp khớp cổ tay 2 thốn, mỗi bên một huyệt.
+The inner mandible lies on the front of the forearm, between the large musculoskeletal muscles and the baby's liver (folding the hand into the forearm and tilting the hand inward to reveal the muscle), on the fold of the wrist. , one on each side.
 
 ![ten buc hinh](https://static.phunugiadinh.vn/wp-content/uploads/2017/09/3-1485448789947.jpg "ten buc hinh")
 
-Công dụng:
+Uses:
 
-Huyệt Nội Quan có tác dụng điều hòa khí huyết, ích tâm, an thần. Từ hơn 3000 năm trước, cổ nhân đã phát hiện ra tác dụng thần kỳ của huyệt vị này trong việc bảo vệ trái tim.
+Internal Medicine has the effect of regulating blood, heart, sedate. More than 3,000 years ago, the ancients discovered the miraculous effect of acupuncture in protecting the heart.
 
-Thường xuyên kích thích có thể chữa trị các chứng bệnh như viêm cơ tim, thiểu năng tuần hoàn động mạch vành tim, giảm nguy cơ đau tim, đồng thời có công hiệu chữa đau cẳng tay, viêm khớp cổ tay, suy nhược thần kinh, mất ngủ…
+Frequent stimulants can cure diseases such as myocarditis, coronary artery bypassion, reduce the risk of heart attack, and have the effect of treating pain in the forearm, wrist arthritis, neurasthenia. , insomnia ...
 
-Cách xoa bóp:
+Massage:
 
-Dùng ngón tay cái ấn xuống vị trí của huyệt, mỗi lần ấn khoảng 3 phút hoặc ấn cho tới khi cảm thấy đau nhói cục bộ thì dừng lại. Mỗi ngày nên ấn huyệt 2 lần, tốt nhất là vào buổi sáng sau khi ngủ dậy và buổi tối trước khi đi ngủ.
+Press the thumb down to the point of the grave, press for about 3 minutes each time or press until you feel numb local stop. Each day, it should be pressed twice, preferably in the morning after waking up and evening before bed.

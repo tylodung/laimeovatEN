@@ -1,51 +1,42 @@
 ---
 published: true
 hidden: false
-title: 10 thói quen xấu làm cạn kiệt năng lượng của bạn và cách để loại bỏ chúng
+title: 10 bad habits deplete your energy and ways to eliminate them
 image: suckhoe.jpg
-custom_excerpt: Bạn có liên tục cảm thấy kiệt sức và tự hỏi mình tại sao? Lý do là bạn đang giữ những thói quen xấu dần làm cạn kiệt năng lượng của mình.
+custom_excerpt: Do you constantly feel exhausted and ask yourself why? The reason is that you are keeping your bad habits exhausting your energy.
+
 
 
 ---
 
-Sau đây là những lời dạy của Đức Dalai Lama có thể giúp bạn khắc phục tình trạng này.
+The following are the teachings of the Dalai Lama who can help you overcome this situation.
 
-1. Giữ lời hứa
+Keep promise
+Do not promise anything to others if you do not. If you try to be kind to someone this way, you will soon destroy your self image and energy. So, if you have promised, keep the word.
 
-Đừng hứa bất kì điều gì với người khác nếu bạn không thực hiện được. Nếu bạn cố gắng tỏ ra tốt bụng với ai đó bằng cách này, bạn sẽ sớm tự phá hủy hình ảnh và năng lượng bản thân. Vì vậy, nếu bạn đã hứa, hãy giữ lời.
+Keep away from the "toxic"
+Do you have the habit of helping others but eventually getting complaints and negative outlooks from others? The solution is to try to get your surroundings filled with positive energies, such as good people, savvy people, and limited contact with bad people.
 
-2. Tránh xa những kiểu người “độc hại”
+Debt repayment
+"Do not owe anybody anything" - this sentence should become your living maxim. Make the habit of repaying at the right time, treat others the way you want them to treat you.
 
-Có phải bạn có thói quen muốn giúp người khác nhưng cuối cùng lại nhận được những lời phàn nàn và ánh nhìn tiêu cực từ những người khác? Giải pháp là hãy cố gắng để môi trường xung quanh bạn được lấp đầy bởi những nguồn năng lượng tích cực, như là những người tốt, người hiểu biết,… và hạn chế tiếp xúc với những kiểu người xấu tính.
+Learn to forgive
+If you choose to live with hatred, you are choosing to suffer. Instead of poisoning yourself with hatred, know how to forgive and continue living, whether or not there is someone worthy of your forgiveness, learn to forgive to bring about energy Leave your body alone, then you'll feel like you're dumping the weight off your chest, trust me.
 
-3. Trả nợ đúng hạn
+Focus on what you like
+Sometimes we need to do things we do not enjoy, but when possible, put aside things that do not belong to you and focus on what you are really passionate about.
 
- “Đừng nợ ai bất kì điều gì” – câu nói này rất nên trở thành châm ngôn sống của bạn. Hãy tập thói quen trả nợ đúng lúc, hãy đối xử với người khác như cách mà bạn muốn họ đối xử với mình.
+Every moment has its own purpose
+Our life takes time to rest and time to work. Both are equally important and necessary. Do not forget this.
 
-4. Học cách tha thứ
+Do not clutter ... let's refresh things!
+If you want your life to run smoothly, never get stuck. Start rearranging your bedroom, or refresh your wardrobe. Living space reflects the energy of you, and clutter is the agent that prevents that natural flow. So, if you want to purify your mind, start clearing up all the chaos in your mind and space.
 
-Nếu bạn chọn cách sống với sự thù ghét có nghĩa là bạn đang chọn lựa sự thống khổ. Thay vì tự đầu độc bản thân bằng sự căm thù, hãy biết cách tha thứ và tiếp tục sống, dù có hay không thì cũng có ai đó xứng đáng với sự tha thứ của bạn, học cách tha thứ để mang lại nguồn năng lượng an yên cho chính bản thân mình, rồi bạn sẽ thấy như trút được vật nặng ra khỏi lồng ngực vậy, tin tôi đi.
+Facing adversity
+Do not avoid when confronted with anything. If anything bother you, show it off and completely remove it from your life. Do not wait for the solution from the sky to fall, they are very close to you, your task is just look around.
 
-5. Tập trung làm những việc mình thích
+Pay attention to your health
+Even the most perfect mind can not do without health. People who tend to take good care of both the mind and body tend to have a happier life. So, try to put less effort into taking care of your own health.
 
-Thỉnh thoảng chúng ta cần làm những thứ mà ta không hề thấy hứng thú, nhưng khi có thể, hãy gác lại những việc không thuộc về bạn và tập trung vào những điều bạn thật sự đam mê và quan tâm.
-
-6. Mỗi giây phút đều có mục đích riêng của nó
-
-Cuộc đời chúng ta cần có thời gian để nghỉ ngơi và thời gian để làm việc. Cả hai đều quan trọng và cần thiết như nhau. Đừng quên điều này.
-
-7. Đừng bừa bộn… hãy làm mới mọi thứ!
-
-Nếu bạn muốn cuộc đời bạn trôi chảy thì đừng bao giờ để bị kẹt lại. hãy bắt đầu sắp xếp lại phòng ngủ, hoặc làm mới tủ đồ của bạn. Không gian sống phản ánh năng lượng của con người bạn, và sự bừa bộn chính là tác nhân ngăn cản dòng chảy tự nhiên đó. Vì vậy, nếu bạn muốn thanh lọc tâm trí, hãy bắt đầu dọn hết tất cả những bộn bề trong không gian và tâm trí của mình.
-
-8. Đối mặt với nghịch cảnh
-
-Đừng tránh né khi phải đương đầu với bất kì thứ gì. Nếu có điều gì phiền lòng bạn, hãy thể hiện ra và loại bỏ nó hoàn toàn khỏi cuộc sống của bạn. Đừng chờ đợi giải pháp từ trời rơi xuống, chúng thường ở rất gần bạn, nhiệm vụ của bạn chỉ là nhìn quanh thôi.
-
-9. Hãy chú ý đến sức khỏe
-
-Ngay cả trí tuệ hoàn hảo nhất cũng chẳng thể làm gì nếu thiếu đi sức khỏe. Những người có xu hướng chăm sóc tốt cho cả tâm trí và cơ thể thường có một cuộc sống hạnh phúc hơn. Vì vậy, hãy cố gắng bỏ ít công sức ra để chăm sóc cho sức khỏe chính bản thân mình.
-
-10. Hãy để cuộc sống trôi
-
-Bạn là một phần của vạn vật, và vạn vật là một phần của con người bạn. Hãy dừng đối đầu với cuộc sống và chấp nhận nó. Hãy để bản thân được trôi theo dòng chảy tự nhiên. Nên nhớ rằng bạn chính là người điều khiển con thuyền.
+Let life float
+You are part of everything, and everything is a part of you. Stop facing life and accept it. Let yourself be drifting in the natural flow. Remember that you are the driver of the boat.
