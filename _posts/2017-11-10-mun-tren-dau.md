@@ -1,90 +1,80 @@
 ---
 published: true
 hidden: false
-title: Làm Thế Nào Trị Mụn Mọc Trên Da Đầu Nhanh Nhất
+title: How to Grow Acne on the Scalp Fastest
 image: 11-10-1.jpg
-custom_excerpt: Mụn trứng cá có thể xuất hiện trên da đầu tương tự như trên mặt hay các vực khác của cơ thể. Mụn mọc trên đầu quả thực gây khó chịu cho rất nhiều người.
+custom_excerpt: Acne can appear on the scalp similar to the face or other areas of the body. Acne on the head really annoys many people.
+
 ---
 
-Cũng giống như các phần còn lại của cơ thể, da đầu có các lỗ chân lông tiết ra dầu (chất bã nhờn) trên bề mặt. Khi các vi khuẩn đã có sẵn trên da đầu kết hợp với các tế bào da chết và chất bã nhờn, các lỗ chân lông bị tắc nghẽn, dẫn tới sự bùng nổ của mụn.
+Just like the rest of the body, the scalp has pores that release oil (sebum) on the surface. Once the bacteria are available on the scalp associated with dead skin cells and sebum, the pores become clogged, leading to outbreaks of acne.
 
-Có một số yếu tố góp phần gây mụn trên da đầu, như thay đổi hormone (đặc biệt là trong suốt quá trình dậy thì và vào những kì kinh nguyệt), chế độ ăn uống kém lành mạnh, phản ứng dị ứng, vệ sinh kém, môi trường sống ẩm ướt, ô nhiễm, tiếp xúc với một số loại hóa chất hay các loại dầu, và các yếu tố cơ học như đội mũ chật hay thói quen gãi đầu của bạn.
+There are a number of factors that contribute to acne on the scalp, such as hormonal changes (especially during puberty and at menstruation), poor diet, allergic reactions, hygiene Poor wet environment, pollution, exposure to certain chemicals or oils, and mechanical factors such as a tight hat or the habit of scratching your head.
 
-Căng thẳng, mệt mỏi và trầm cảm cũng có thể góp phần gây ra vấn đề này.
+Stress, fatigue and depression can also contribute to this problem.
 
-Mặc dù mụn ở da đầu có thể không dễ nhận thấy bởi da đầu chủ yếu được bao phủ bởi tóc, nó có thể gây nên sự đau đớn và bất tiện, cũng như cực kì khó khăn trong việc chăm sóc tóc. Trên thực tế, việc vuốt hay chải tóc có thể trở thành công việc đau đớn.
+Although acne in the scalp may not be noticeable because the scalp is mainly covered by hair, it can cause pain and discomfort, as well as extremely difficult hair care. In fact, stroking or combing hair can be a painful job.
 
-Các triệu chứng của mụn trứng cá mọc trên đầu bao gồm viêm và ngứa. Nếu không được chữa trị, nó có thể dẫn tới viêm nang lông, một bệnh nhiễm trùng nang lông do vi khuẩn, đặc biệt là vi khuẩn Staphylococcus.
+Symptoms of acne that grow on the head include inflammation and itching. Untreated, it can lead to hair folliculitis, a bacterial hair follicle infection, especially Staphylococcus.
 
-Trong khi mụn trên da đầu có xu hướng nhạy cảm hơn và đau hơn so với mụn ở các phần khác trên cơ thể, nó thường tự biến mất trong vòng một tuần hoặc hơn. Nhưng nó có thể khó điều trị hơn mụn ở những nơi khác do vướng tóc.
+While acne on the scalp tends to be more sensitive and painful than acne in other parts of the body, it usually disappears within a week or so. But it can be harder to treat acne in other places due to hair loss.
 
-Để ngăn ngừa vấn đề gây khó chịu và đau đớn này, bạn cần tuân thủ việc vệ sinh tóc hợp lý. Cũng có một vài phương pháp tự nhiên và bí kíp đơn giản có thể giúp đẩy nhanh quá trình chữa trị.
+To prevent this annoying and painful problem, you should follow proper hair hygiene. There are also some simple natural remedies and tips that can help speed the healing process.
 
-Nếu mụn da dầu trở gây đau đớn hay không có dấu hiệu phục hồi, bạn hãy gặp bác sĩ da liễu để có chẩn đoán và điều trị thích hợp. Đôi khi, kháng sinh có thể được chỉ định.
+If skin rash is painful or does not show signs of recovery, see your dermatologist for proper diagnosis and treatment. Sometimes, antibiotics can be prescribed.
 
-Cach tri mun tren da dau, cach tri mun trung ca, mun moc tren da dau
+Cach three train give da, cach three mun trung ca, mun mun train give da
 
- Sau đây là 10 cách tốt nhất để trị mụn trên da đầu.
+Here are the top 10 ways to treat acne on your scalp.
 
-1. Tinh Dầu Tràm trà
+Tea Tree Oil
+Melaleuca tea is an effective treatment for acne and other scalp problems. This oil acts as a disinfectant, disinfects the pores and quickly cleanses the acne.
 
-Dầu tràm trà là một phương pháp điều trị hiệu quả cho mụn và các vấn đề về da đầu khác. Tinh dầu này hoạt động như một chất khử trùng, khử trùng các lỗ chân lông và nhanh chóng làm khô mụn.
+Cach three train give da, cach three mun trung ca, mun mun train give da
 
-Cach tri mun tren da dau, cach tri mun trung ca, mun moc tren da dau
+It also destroys the bacteria that cause acne, reducing redness and itching.
 
-Nó cũng tiêu diệt vi khuẩn gây mụn, giảm tấy đỏ và ngứa.
+You can choose any of the following methods to treat eczema on your scalp with tea tree oil:
 
-Bạn có thể chọn bất kì phương pháp nào sau đây để trị mun mọc trên da đầu với tinh dầu tràm trà:
+Mix 5 drops of tea tree oil and 2-3 tablespoons of olive oil or coconut oil. Massage this oil onto your scalp and shampoo after 1-2 hours. Repeat 1 time per day. Alternatively, add small amount of tea tree oil to your daily shampoo (2-3 drops per 30ml of shampoo). Then use this shampoo to wash your hair daily. When using this method, make sure to shampoo the hair for about 2 minutes before shampooing.
 
-Trộn đều 5 giọt tinh dầu tràm trà và 2-3 thìa canh dầu oliu hay dầu dừa. Massage hỗn hợp dầu này lên da đầu bạn và gội sạch sau 1-2 giờ. Lặp lại 1 lần mỗi ngày.
-Cách khác, nhỏ dầu tràm trà vào dầu gội bạn dùng hàng ngày (2-3 giọt trên mỗi 30ml dầu gội). Sau đó sử dụng dầu gội này để gội đầu hàng ngày. Khi sử dụng phương pháp này, hãy đảm bản để dầu gội trên tóc khoảng 2 phút trước khi gội sạch.
+Another option is to drop 1-2 drops of tea tree oil on a damp cotton pad and gently apply to the skin on the scalp. Leave for a few hours then wash with cool water. Repeat 2 times per day.
 
-Một lựa chọn khác là nhỏ 1-2 giọt dầu tràm trà lên một chiếc tăm bông ẩm và thoa nhẹ nhàng lên vùng da bị mụn trên da đầu. Để yên trong vài giờ sau đó gội sạch với nước mát. Lặp lại 2 lần mỗi ngày.
+Note: Because some people may be allergic to tea tree oil, so you should try to react on small skin if first use offline.
 
-Lưu ý: Vì vài người có thể bị dị ứng với tinh dầu tràm trà, do vậy bạn rất nên thử phản ứng trên vùng da nhỏ nếu lần đầu sử dụng nhé.
+Art
+Turmeric is another great natural ingredient to treat acne scars. The compound called curcumin in turmeric contains strong antimicrobial, anti-oxidant and anti-inflammatory properties.
 
-2. Nghệ
+Cach three train give da, cach three mun trung ca, mun mun train give da
 
-Nghệ là một thành phần thiên nhiên tuyệt vời khác để điều trị mụn da đầu. Hợp chất được gọi là Curcumin trong nghệ có chứa đặc tính kháng khuẩn, chống oxy hóa và chống viêm mạnh.
+It can inhibit the growth of the acne virus on P. acnes. It is also effective in reducing pain and preventing acne scars.
 
-Cach tri mun tren da dau, cach tri mun trung ca, mun moc tren da dau
+Mix ½ teaspoon turmeric powder with ¼ to ½ teaspoon pure coconut oil to create a thick paste. Apply it on the affected area. Incubate for 1 hour, then shampoo with your daily shampoo. Repeat 1 time per day.
 
-Nó có thể kìm hãm sự phát triển của virus gây mụn trên da đầu P. acnes. Nó thậm chí cũng hiệu quả trong việc giảm đau và ngăn ngừa sẹo hình thành mụn.
+You can also take curcumin 450 mg, twice daily. Always consult your doctor before starting any additional treatment regimens.
 
-Trộn ½ thìa café bột nghệ với ¼ đến ½ thìa café dầu dừa tinh khiết để tạo một hỗn hợp đặc sệt. Bôi nó lên vùng da bị mụn. Ủ trong 1 giờ, sau đó gội sạch với dầu gội hàng ngày của bạn. Lặp lại 1 lần mỗi ngày.
+Apple Vinegar
+Apple cider vinegar also helps fight acne on the scalp. Its antimicrobial and antiseptic properties help to remove follicular hair follicles and acne causing acne. In addition, it regains the pH balance of the scalp to prevent further acne.
 
-Bạn cũng có thể uống viên uống curcumin 450-mg, 2 lần mỗi ngày. Luôn luôn hỏi ý kiến bác sĩ trước khi bắt đầu bất kì phác đồ điều trị bổ sung nào nhé.
+Mix the apple cider vinegar with equal amount of warm water, and wash your hair with this solution. Wait 5-7 minutes, then rinse your hair with clean water. Make every time you shampoo. Also, add 1 teaspoon of pure apple vinegar, unfiltered to 1 cup of warm water and twice a day.
 
-3. Giấm Táo
+Note: Do not add untreated apple cider vinegar to your hair, as it can irritate your scalp.
 
-Giấm táo cũng giúp đánh bay mụn trên da đầu. Đặc tính kháng khuẩn và sát trùng giúp loại sạch các nang tóc có vi khuẩn và bã nhờn gây mụn. Thêm nữa, nó lấy lại độ cân bằng pH của da đầu để ngăn ngừa mụn phát sinh thêm.
+Aloe Club
+Another popular ingredient to reduce and eliminate acne on the scalp is aloe. It can help kill bacteria that cause acne, prevent infections, reduce inflammation and promote recovery. It even helps maintain the pH balance of the scalp.
 
-Trộn giấm táo với lượng nước ấm tương đương, và gội sạch tóc với dung dịch này. Đợi 5-7 phút, sau đó xả lại tóc với nước sạch. Thực hiện mỗi khi bạn gội đầu.
-Cũng như vậy, hãy thêm 1 thìa café giấm táo nguyên chất, chưa lọc vào 1 cốc nước ấm và uống 2 lần/ngày.
+A 2010 study published in the Journal of Chemical and Pharmaceutical Research highlighted the medicinal properties of aloe, such as anti-inflammatory, antibacterial, anesthetic, antiseptic and anti-bacterial. It is good for the skin as well as hair and scalp.
 
-Lưu ý: Không bôi giấm táo chưa pha loãng lên tóc bạn, vì nó có thể gây kích ứng mạnh với da đầu bạn.
+Remove the aloe leaf and take the gel. Apply this pure gel to the area of ​​acne twice a day for 1 week. Instead, mix ½ cup aloe vera gel with ½ lemon juice. Apply on wet hair, concentrate and skin with acne. Wait 30 minutes, then rinse with lukewarm water. Do once a day for a few days.
 
-4. Lô Hội
+Tomato juice
+Tomatoes are a great source of Salicylic Acid which is very effective in treating any type of acne, especially acne that grows on the scalp. Axic Salicylic Acid Helps Dry Acne.
 
-Một thành phần phổ biến khác để giảm và loại bỏ mụn trên da đầu là lô hội. Nó có thể giúp tiêu diệt vi khuẩn gây mụn, ngăn ngừa nhiễm trùng, giảm viêm và thúc đẩy sự phục hồi. Nó thậm chí cũng giúp duy trì cân bằng pH của da đầu nữa.
+Tomatoes also help reduce the formation of sebum, one of the causes of acne and help maintain a healthy pH on your scalp.
 
-Một nghiên cứu năm 2010 được công bố trên tờ Journal of Chemical and Pharmaceutical Research đã nhấn mạnh tính chất dược liệu của lô hội, như là kháng viêm, kháng khuẩn, gây mê, sát trùng và chống vi khuẩn. Nó tốt cho da cũng như tóc và da đầu.
+Spread the fresh tomato juice on your scalp. Wait 10 minutes, then rinse with lukewarm water. Repeat once a day for several days. Another method is to prepare a mixture with 1 tablespoon of tomato juice, a few drops of lemon juice and ½ teaspoon of pure honey. Dip a cotton pad into the mixture and apply to the affected area. Wait 5 minutes, then rinse with lukewarm water. Use this method once a day for several days.
 
-Tách vỏ 1 lá lô hội và lấy gel. Bôi loại gel tinh khiết này lên vùng bị mụn 2 lần/ngày trong 1 tuần.
-Thay vào đó, trộn đều ½ cup gel lô hội với nước cốt của ½ quả chanh. Bôi lên tóc ướt, tập trung hơn và vùng da bị mụn. Đợi 30 phút, sau đó xả sạch với nước ấm. Thực hiện 1 lần/ngày trong vài ngày.
+Honey
+Honey is pure antibacterial as well as antioxidant which together inhibit the growth of acne bacteria. It is also effective in reducing redness and pain.
 
-5. Nước Ép Cà Chua
-
-Cà chua là một nguồn Axit Salicylic tuyệt với rất hiệu quả trong việc điều trị bất kì loại mụn trứng cá nào, đặc biệt là mụn mọc trên da đầu. Axic Salicylic giúp làm khô mụn.
-
-Cà chua cũng giúp giảm sự hình thành chất bã nhờn, một trong những nguyên nhân gây mụn da dầu và giúp duy trì độ pH khỏe mạnh trên da đầu bạn.
-
-Bôi đều nước ép cà chua tươi lên da đầu bạn. Đợi 10 phút, sau đó xả sạch với nước ấm. Lặp lại 1 lần/ngày trong vài ngày.
-Một phương pháp khác là chuẩn bị một hỗn hợp với 1 thìa canh nước cà chua, vài giọt nước cốt chanh và ½ thìa café mật ong nguyên chất. Nhúng 1 miếng bông vào hỗn hợp và bôi lên vùng da bị mụn. Đợi 5 phút, sau đó xả sạch với nước ấm. Sử dụng phương pháp này 1 lần/ngày trong vài ngày.
-
-6. Mật Ong
-
-Mật ong nguyên chất có tính kháng khuẩn cũng như chống oxy hóa mà cùng giúp ức chế sự phát triển của vi khuẩn gây mụn da đầu. Nó cũng hiệu quả trong việc giảm tấy đỏ và đau.
-
-Thoa một chút mật ong nguyên chất lên vùng da bị mụn. Đợi 10 phút trước khi xả sạch với nước ấm. Lặp lại 2 lần mỗi ngày trong vài ngày để đạt được kết quả tốt nhất.
-Để thay thế, trộn 2 thìa canh mật ong và 1 thìa café bột quế. Bôi hỗn hợp lên da đầu bằng ngón tay. Đợi 20 phút, sau đó xả sạch với nước ấm. Sử dụng phương pháp này 1 lần mỗi ngày
+Apply a little honey on the skin to acne. Wait 10 minutes before rinsing with warm water. Repeat 2 times daily for several days to achieve the best results. Alternatively, mix 2 tablespoons honey and 1 teaspoon cinnamon powder. Apply the mixture to the scalp with your fingers. Wait 20 minutes, then rinse with lukewarm water. Use this method once a day

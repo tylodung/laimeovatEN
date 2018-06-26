@@ -1,39 +1,40 @@
 ---
 published: true
 hidden: false
-title: Công dụng chữa bệnh “thần kỳ” của mộc nhĩ không phải ai cũng biết
+title: The use of "magic" of wood ear is not known
 image: mocnhi.png
-custom_excerpt: Ăn mộc nhĩ sẽ giúp ngăn chặn được bệnh tắc hoặc vỡ mạch máu ở người tăng huyết áp, hạn chế tai biến nhồi máu cơ tim.
+custom_excerpt: Eating at the ear will help prevent blockages or broken blood vessels in people with hypertension, limiting the risk of myocardial infarction.
+
 ---
 
-Nấm mèo còn gọi là nấm tai mèo, mộc nhĩ, có tên khoa học là Auricularia auricula, thường mọc trên cây gỗ mục ẩm ướt, hình nấm giống tai người vì vậy gọi là mộc nhĩ (tai của gỗ).
+Fungus, also called Auricularia auricula, is often called the ear-wood ear.
 
 ![ten buc hinh](https://static.phunugiadinh.vn/wp-content/uploads/2017/10/1107-2T.png "ten buc hinh")
 
-Theo Đông y, nấm mèo vị ngọt tính bình, đi vào các kinh tỳ vị, đại tràng, can, thận. Tác dụng làm mát máu, làm ngừng chảy máu do va đập, bị thương. Chữa trị các bệnh trường phong hạ huyết, nhuận táo, lợi trường vị, lỵ ra máu, đái dắt, đái ra máu, trị lở, bổ khí, bền cơ, hoạt huyết.
+According to oriental medicine, sweet cucumbers mushrooms, go into the business, colon, cans, kidneys. The effect of cooling blood, stop bleeding due to shock, injury. Treatment of leprosy, leukemia, leucorrhea, blood dysentery, diabetes mellitus, laryngitis, tonic, muscle endurance, blood.
 
-Nấm mèo là thức ăn, vị thuốc bổ dưỡng cho người khí huyết suy kém và chữa trị được nhiều bệnh nan y về tim mạch. Liều dùng mỗi ngày từ 15 đến 20g bằng hình thức: Xào, nấu, sắc nước hoặc nghiền nhỏ uống.
+Fungus is a food, a nourishing medicine for people with impaired blood and many diseases in cardiovascular disease. The daily dose of 15 to 20g in the form of: fried, boiled, water or crushed drink.
 
-Ăn nấm mèo sẽ giúp ngăn chặn được bệnh tắc hoặc vỡ mạch máu ở người tăng huyết áp, hạn chế tai biến nhồi máu cơ tim; nấm mèo giúp máu lưu thông toàn thân, đưa máu lên não đầy đủ hơn nên duy trì trí nhớ tốt.
+Eating mushrooms will help prevent blockages or broken blood vessels in people with hypertension, reducing the risk of myocardial infarction; Cats help the blood flow through the body, bringing more blood to the brain should maintain good memory.
 
-Nấm mèo cũng có tác dụng giảm cholesterone trong máu, và góp phần kiểm soát cân nặng, rất tốt với những người thừa cân, béo phì. Làn da bạn sẽ trở nên hồng hào, tươi sáng, mịn màng hơn nếu thường xuyên sử dụng mộc nhĩ trong các món ăn.
+Fungi also contribute to the reduction of cholesterol in the blood, and contribute to weight control, which is good for those who are overweight or obese. Your skin will become rosy, bright, smooth if you regularly use ear fungus in the dish.
 
- Sau đây là một số tác dụng của nấm mèo:
+Here are some of the effects of fungus:
 
-– Chữa mỡ máu cao, chống nghẽn mạch: Dùng nấm mèo (10g), thịt lợn nạc (50g), 5 quả táo tàu đen, 3 lát gừng, đổ vào 6 chén nước, sắc như sắc thuốc bắc, chỉ còn 2 chén, thêm vào ít muối, tí bột ngọt, rồi ăn như canh, mỗi ngày 1 lần, ăn liên tục hằng ngày.
+- High blood fat, anti-thrombosis: Use mushrooms (10g), lean pork (50g), 5 black jujube, 3 slices ginger, pour into 6 cups of water, add a little salt, a little powder of powder, then eat like soup, once a day, eaten constantly every day.
 
-– Chữa hư lao khạc ra máu: Nấm mèo (50g), nấu nhừ, thêm đường phèn ăn thường xuyên, hoặc xào chín ăn.
+- Fungus coughing blood: mushrooms cat (50g), cooked, add sugar often eaten, or fried cooked.
 
-– Chữa đại tiểu tiện ra máu: Nấm mèo (50g), sao thán tồn tính, tán nhuyễn để uống.
+- Cure the urine to blood: mushrooms cat (50g), persistent starch, drink to drink.
 
-– Chữa tăng huyết áp, bệnh mạch vành: Nấm mèo (10g), ngân nhĩ (10g), ninh nhừ nêm đường phèn vừa đủ, ăn trước khi ngủ.
+- Cure hypertension, coronary disease: fungus cats (10g), atrium (10g), light sugar wedge sugar just enough, eat before bed.
 
-– Chữa trĩ ra máu: Nấm mèo (10g), quả hồng khô (30g), cùng nấu nhừ để ăn.
+- Cure blood pheasant: mushrooms (10g), dry red berries (30g), cooked together to eat.
 
-– Chữa kinh nguyệt ra nhiều, máu kinh không cầm, sắc màu tươi rói, tâm phiền miệng khát, tiểu tiện vàng ít, cũng như huyết nhiệt rong kinh, dầm dề, trường phong ra huyết: Nấm mèo (30g), đường cát (15g). Nấm mèo xào bằng lửa nhỏ, thêm nước khoảng 300ml, sau khi chín nêm đường dùng.
+- Cure many menstrual bleeding, fresh color, heart thirst, thirst little gold, as well as hemorrhoids, glaucoma, hallucinogenic blood: Cucumber (30g), sand sugar (15g). Stir fried catfish with fire, add water about 300ml, after noodles seasoning use.
 
-– Chữa đại tiện không thông: Nấm mèo (30g), hải sâm (30g), phèo lợn (200g). Phèo rửa sạch, cắt đoạn nhỏ, cùng nấm mèo, hải sâm nấu chung, sau khi nêm nếm gia vị thì dùng.
+- Cure defecation: Cats mushrooms (30g), sea cucumber (30g), pigs (200g). Wash, cut small pieces, mushroom cat, ginseng cooking together, after seasoning seasoning use.
 
-– Chữa bệnh mạch vành, di chứng tai biến mạch máu não, chứng cao mỡ máu và tình trạng máu đông nhiều: Dưa chuột (150g) rửa sạch, thái lát. Nấm mèo, nấm tuyết mỗi thứ 100g (đã ngâm nở), rửa sạch, xé nhỏ. Nấm chần qua nước sôi, vớt ra, dội qua nước lạnh làm nguội, để ráo nước, đặt vào đĩa to, rưới lên dầu ăn, cho vào lò hầm vài giây, nêm gia vị vừa ăn.
+- Coronary artery disease, sequelae of cerebral vascular disease, hyperlipidemia and blood clots: Cucumber (150g) washed, sliced. Cucumber, snow mushrooms every 100g (soaked), washed, ripped small. Fill the boiling water, remove it, pour the cold water to cool, drain, put in a large dish, sprinkle oil, to the oven for a few seconds, add seasoning.
 
-Lưu ý, tuyệt đối không ngâm nấm mèo khô bằng nước nóng mà phải ngâm bằng nước lạnh, không được ăn nấm mèo tươi. Không nên sử dụng nấm mèo cho phụ nữ mang thai hoặc cho con bú, cũng như những người có ý định sinh con.
+Note, absolutely do not soak the dried cat fungus with hot water that must be soaked in cold water, do not eat fresh mushrooms. Do not use fungi for pregnant or lactating women, as well as those who intend to have a baby.

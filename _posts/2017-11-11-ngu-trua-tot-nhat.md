@@ -1,83 +1,84 @@
 ---
 published: true
 hidden: false
-title: Chuyên gia hướng dẫn cách ngủ trưa tốt nhất để chăm sóc gan Ai cũng nên áp dụng sớm!
+title: The best way to take good care of your liver is to apply early.
 image: 11-11-3.jpg
-custom_excerpt: Gan khỏe hay yếu nhờ vào giấc ngủ. Vì khi ngủ gan sẽ được tái tạo và phục hồi. Ngoài việc đi ngủ sớm, giấc ngủ trưa vô cùng quan trọng.
+custom_excerpt: Healthy or weak liver due to sleep. Because sleep is regenerated and restored. In addition to going to bed early, nap is extremely important.
+
 ---
 
-Gan khỏe hay yếu nhờ vào giấc ngủ. Vì khi ngủ gan sẽ được tái tạo và phục hồi. Ngoài việc đi ngủ sớm, giấc ngủ trưa vô cùng quan trọng.
+Healthy or weak liver due to sleep. Because sleep is regenerated and restored. In addition to going to bed early, nap is extremely important.
 
-Ngủ trưa là để dưỡng gan, ngủ thế nào mới là đúng cách?
+Noise is to keep the liver, how to sleep is the new way?
 
-Các bác sĩ cho rằng, không ngủ buổi trưa, làm hỏng buổi chiều. Ý nói rằng giấc ngủ ngắn ngủi đó mang lại cho cơ thể rất nhiều lợi ích. Nếu chịu khó ngủ, dù chỉ ít phút, bạn sẽ thấy rất khác biệt. Tuy nhiên, nếu ngủ quá lâu, khi thức dậy sẽ có cảm giác tê tay chân, đau đầu, chóng mặt, uể oải, thiếu năng lượng.
+Doctors do not sleep at noon, spoil the afternoon. It is said that such a short nap gives the body many benefits. If you have difficulty sleeping, even if only a few minutes, you will find very different. However, if you sleep too long, when you wake up will feel numb limbs, headache, dizziness, laziness, lack of energy.
 
-Vậy, rốt cuộc thì nên ngủ trưa thế nào mới đúng? Đây là lời khuyên chung của các chuyên gia.
+So what should be the last nap? This is the general advice of the experts.
 
-Thời gian: Nên ngủ khoảng nửa giờ thích hợp nhất
+Time: Should sleep about half an hour most appropriate
 
-Thời gian ngủ trưa, không phải là lúc bạn cần phải ngủ cho “đã mắt” mà chỉ nên ngủ tối đa khoảng 30 phút. Nếu không đủ thời gian đó thì có nên ngủ không?
+Sleeping time, not the time you need to sleep for "had eyes" that should only sleep up to about 30 minutes. If not enough time, should not sleep?
 
-Ngủ chợp mắt từ 10 đến 20 giây
+Sleeping from 10 to 20 seconds
 
-Nhiều người vì lý do công việc, thường không thể đủ thời gian để nghỉ trưa, nhưng bạn hãy nhớ rằng, chỉ cần bạn mắt nhắm tại chỗ khoảng 10-20 giây thì cũng có thể mang lại những lợi ích không nhỏ cho sức khỏe.
+Many people for work, usually do not have enough time to rest for lunch, but remember, just eye-aiming for about 10-20 seconds can also bring benefits not small for health .
 
-Khi bạn mệt mỏi, có thể ngay lập tức nhắm mắt, thư giãn hoàn toàn tâm trí, tập trung vào việc nghỉ ngơi, chỉ trong một vài chục giây ngắn ngủi cũng có thể thay đổi tình trạng mệt mỏi nhanh chóng, khôi phục lại tâm lý và tinh thần.
+When you are tired, you can immediately close your eyes, relax your mind completely, focus on resting, in just a few tens of seconds can also change the tired state quickly, restore psychological and spiritual.
 
-Ngủ ngắn từ 2-5 phút
+Sleep short for 2-5 minutes
 
-Đừng đánh giá thấp một vài phút “nghỉ trưa vi diệu” này, bởi dù vài phút nhưng bạn cũng nên thử xem hiệu ứng tuyệt vời trong việc loại bỏ sự mệt mỏi.
+Do not underestimate a few minutes of this wonderful "lunch break", though for a few minutes you should try to see the great effect of eliminating fatigue.
 
-Nhiều người làm việc trong thời gian dài, đặc biệt là nhân viên văn phòng khiến bạn đau đầu, bộ nhớ suy giảm dần dần, thường hay nhớ nhớ quên quên, thiếu tập trung. Tại thời điểm này, hãy “nhắm mắt làm ngơ” nghỉ ngơi một vài phút, cho đến khi cơ thể thư giãn, bình tĩnh, sẽ tạo ra cảm hứng mới, nâng cao hiệu quả làm việc.
+Many people working for a long time, especially office workers make you headache, memory decline gradually, often remember forget forget, lack of concentration. At this point, "turn a blind eye" to rest for a few minutes, until the body relax, calm, will create new inspiration, improve work efficiency.
 
-Ngủ trưa từ 20 đến 30 phút
+Lunch for 20 to 30 minutes
 
-Nếu bạn cần phải tăng cường trí nhớ trong dài hạn, sự lựa chọn giấc ngủ trưa tốt nhất chính là khoảng thời gian này. Ngủ đủ 30 phút là thời gian tốt nhất để hỗ trợ và chăm sóc cho gan. Thời gian này đủ để gan nhận lại những lợi ích điều hòa và lấy lại sự cân bằng.
+If you need to enhance your memory in the long run, the best sleep alternative is around this time. A full 30 minutes is the best time to support and care for the liver. This time is enough for the liver to regain harmony and restore balance.
 
-Bởi vì sau khi ăn trưa, máu trong cơ thể tập trung vào đường tiêu hóa để tiêu hóa thức ăn. Nếu ăn xong phải đi bộ hay vận động, lượng máu tiếp tục phải di chuyển đến tay và chân dẫn đến không còn đủ máu để cung cấp vào gan, từ đó dẫn đến quá trình trao đổi chất trong gan bị ảnh hưởng.
+Because after lunch, blood in the body focuses on the digestive tract to digest food. If food is eaten or moved, blood flow to the hands and feet leads to insufficient blood supply to the liver, leading to metabolic processes in the liver that are affected.
 
-Do đó, hãy tranh thủ thời gian để ngủ trưa tốt nhất trong khoảng thời gian từ 20 -30 phút, như vậy sẽ duy trì tốt chức năng gan, tăng cường tiêu hóa, duy trì sự cân bằng và khỏe mạnh.
+Therefore, take the time to have a good nap during 20-30 minutes, thus maintaining good liver function, enhancing digestion, maintaining balance and staying healthy.
 
-Ngủ dài từ 40-90 phút
+Sleep for 40-90 minutes
 
-Đây thời gian ngủ trưa hơi dài, dù bạn cảm thấy “đã” hơn đó lại là thói quen không lành mạnh. Bởi vì thời gian ngủ trưa quá 30 phút, cơ thể sẽ đi vào giấc ngủ sâu, khoảng 45 phút sau nếu tỉnh dậy bản sẽ cảm thấy đau đầu và các triệu chứng mệt mỏi ủ rũ khác.
+This is a long nap, although you feel "more" than it is an unhealthy habit. Because the nap time is over 30 minutes, the body will go to deep sleep, about 45 minutes later if you wake up will feel headaches and other moody tiredness.
 
-Nếu bạn có đủ thời gian, thì nên lựa chọn một giấc ngủ ngắn 30 phút, hoặc là ngủ sâu từ 1-1,5 tiếng thay vì chọn một khoảng thời gian ở giữa hai mốc này. 1,5 giờ đồng hồ có thể xem là một giấc ngủ sâu hoàn chỉnh.
+If you have enough time, choose a 30 minute nap, or take a 1-1.5 hour deep sleep instead of choosing a time between these two. 1.5 hours can be considered a complete sleep.
 
-Tư thế: Ngủ trưa tốt nhất nên dùng gối hình chữ U
+Posture: It is best to use a U-pillow for a good nap
 
-Rất nhiều người có thói quen cúi úp mặt trên bàn để ngủ trưa. Thực tế đây là một tư thế không tốt. Thứ nhất là có thể khiến bạn cảm thấy không thoải mái, dễ bị các bệnh về cổ vai gáy, trong thời gian dài sẽ bị biến dạng xương cổ và cột sống, mỏi vùng cổ vai gay dẫn đến sinh bệnh.
+Many people have a habit of bowing their heads on the table for a nap. Actually this is a bad posture. The first is that it can make you feel uncomfortable, prone to neck neck disease, in the long term will be deformed neck and spine, fatigue neck shoulders leading to disease.
 
-Thứ hai là nằm ngủ gục trên bàn có thể ảnh hưởng đến cơ quan hô hấp, tuần hoàn máu và các dây thần kinh. Nếu nằm lâu như vậy có thể gây các triệu chứng đau đầu, hoa mắt, ù tai, cơ thể mệt mỏi, chuột rút và các chứng bệnh khác.
+Secondly, lying down on the table can affect the respiratory organs, blood circulation and nerves. It can cause headaches, dizziness, tinnitus, body fatigue, cramps and other illnesses.
 
-Ngủ trưa như vậy không những không đạt được mục đích chính là nghỉ ngơi thư giãn mà còn gây hại cho sức khỏe một cách tồi tệ hơn.
+Such non-napping not only does not achieve the main purpose of relaxing, but also harming health in a worse way.
 
-Bạn có thể chọn một chiếc gối chữ U, nằm dựa ra ghế dài hoặc nằm hẳn xuống mặt sàn, nhắm mắt thư giãn và giữ cho cột sống thẳng.
+You can choose a U pillow, lying on the couch or lying on the floor, closing your eyes and keeping the spine straight.
 
-Nếu không còn sự lựa chọn khác, bạn có thể ôm một chiếc gối và ngồi ngay trên ghế để giảm bớt áp lực cẳng tay. Sau giờ nghỉ trưa, nên làm một số bài tập kéo dài các cơ để giảm áp lực và giúp lưu thông máu.
+If you have no other choice, you can hold a pillow and sit in a chair to ease the pressure on your forearm. After lunch, do some stretching exercises to reduce pressure and help blood circulation.
 
-Những nhóm người phải chú ý đến giấc ngủ trưa
+Groups of people have to pay attention to the nap
 
-Người bị thừa cân, huyết áp thấp, rối loạn hệ tuần hoàn
+People are overweight, low blood pressure, circulatory disorders
 
-Đối với nhóm người có thể trạng thừa cân, huyết áp thấp, bệnh nhân bị rối loạn hệ thống tuần hoàn nghiêm trọng, nếu ngủ ngay sau bữa ăn có thể khiến cho mạch máu dưới da bị giãn nở, lưu lượng máu hoạt động mạnh hơn nếu kết hợp với việc máu dồn vào hệ tiêu hóa sau khi ăn dẫn đến giảm lượng máu lên não, từ đó có thể dẫn đến bị thiếu máu não, có thể mắc nguy cơ gây nhồi máu não.
+For people with overweight, low blood pressure, patients with severe systemic recurrences, sleeping shortly after meals can cause the blood vessels under the skin to expand, blood flow to work. More if combined with the blood accumulates in the digestive system after eating leads to reduced blood flow to the brain, which can lead to cerebral ischemia, may be at risk of cerebral infarction.
 
-Người cần đổi giờ ngủ trưa
+He needs to change his nap time
 
-Nếu bạn ngủ trưa xong mà có cảm giác bị chóng mặt, nhức đầu, mệt mỏi, tim mạch nhanh, có thể thay đổi thời gian ngủ ngắn trong 30 phút trước khi ăn trưa. Ngủ xong dậy ăn sau cũng là giải pháp để phòng tránh các bệnh nhồi máu não, đồng thời có thể nghỉ ngơi để loại bỏ sự mệt mỏi.
+If you have a nap, feel dizzy, headache, tiredness, fast heartbeat, can change the nap time for 30 minutes before lunch. Sleeping after eating is also a solution to prevent cerebral infarcts, and can rest to eliminate fatigue.
 
-Người đáng uống thuốc hạ huyết áp
+People worth taking blood pressure medication
 
-Nếu bạn đang phải uống thuốc hạ huyết áp thì không nên ngủ trưa ngay sau đó. Để an toàn, uống thuốc xong nên ngồi nghỉ khoảng từ 15-30 phút mới được nằm ngủ để không ảnh hưởng đến quá trình hấp thụ thuốc và phòng tránh buồn ngủ.
+If you are taking antihypertensive drugs do not take nap right after. To be safe, take medication should sit for about 15-30 minutes to sleep so as not to affect the process of drug absorption and prevent drowsiness.
 
-Ngủ dậy cần xoa bóp, uống nước
+Get up to massage, drink water
 
-Nhiều người ngủ xong dậy sẽ khó chịu, uể oải, đau chỗ này chỗ kia. Sau khi ngủ dậy, bạn nên vận động nhẹ hoặc xoa bóp một chút trước khi làm việc. Đồng thời nên uống bổ sung nước để cơ thể tỉnh táo hẳn, bổ sung nước làm loãng máu, tránh máu vón cục.
+Many people will sleep up to be upset, sluggish, painful here and there. After waking up, you should exercise lightly or massage a little before work. At the same time should drink water to keep the body completely, add water to dilute blood, avoid blood clots.
 
-Nếu bạn không được ngủ trưa, hãy thử phương pháp này để thay thế
+If you are not taking a nap, try this method instead
 
-Đây là việc giúp bạn “sạc” năng lượng cho cơ thể nếu bạn không thể ngủ trưa.
+This is to help you "charge" the body if you can not sleep.
 
-Hai bàn tay khom cong lại như chiếc thuyền, sau đó úp vào 2 mắt. Chú ý không che tay vào mũi hoặc miệng để không cản trở hơi thở. Nhớ khép các ngón tay thật chặt để không hở ra làm lọt ánh sáng vào mắt.
+His hands curved like a boat, then put his eyes. Caution not to cover your nose or mouth to prevent breathing. Remember to close your fingers tightly to not open out into the light.
 
-Cách làm này giúp cho đôi mắt vốn mệt mỏi có thời gian để tái tạo lại, bóng tối bao phủ quanh mắt sẽ giúp cho tinh thần thay đổi, não được cải thiện, giảm nhức mỏi mắt. Thời gian tối thiểu nên duy trì trong khoảng 5-6 phút.
+This makes the tired eyes have time to recreate, the dark covering the eyes will help the spirit change, the brain is improved, reduce eye strain. Minimum time should be 5 to 6 minutes.

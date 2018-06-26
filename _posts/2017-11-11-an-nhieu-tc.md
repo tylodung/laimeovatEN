@@ -1,53 +1,49 @@
 ---
 published: true
 hidden: false
-title: Ăn quá nhiều trái cây cũng không tốt, nhưng 5 loại quả này được khuyên nên ăn thường xuyên
+title: Eating too many fruits is not good, but these five fruits are recommended to eat regularly
 image: 11-11-1.png
-custom_excerpt: Nhiều người không thích ăn trái cây, hoặc sợ ăn trái cây sẽ làm tăng cân. Nhưng với 5 loại trái cây này, bạn có thể ăn quanh năm suốt tháng vì những tác dụng trên cả tuyệt vời.
+custom_excerpt: Many people who do not like to eat fruit, or are afraid of eating fruit, will gain weight. But with these 5 fruits, you can eat all year round throughout the month because of these wonderful effects.
+
 ---
 
-Thường xuyên ăn hoa quả là một thói quen tuyệt vời mà ai cũng nên tập cho mình, đặc biệt là việc bố mẹ rèn cho con cái sở thích ăn hoa quả đều đặn mỗi ngày.
+Frequent eating of fruits is a great habit that everyone should practice for themselves, especially the parents forging their children's interest in eating fruit regularly every day.
 
-Có những loại trái cây nếu ăn quá nhiều sẽ có một tác dụng phụ đó là gây ra dư thừa lượng đường trong máu. Đó cũng là lý do khiến cho 5 loại trái cây sau đây được xếp vào nhóm trái cây được ưu tiên và phù hợp với nhiều đối tượng sử dụng.
+Having those fruits if you eat too much will have a side effect that is causing excess blood sugar. That is why the following five fruits are classified as priority fruits and suitable for many users.
 
-Càng ăn thường xuyên bao nhiêu, càng bổ sung chất nhiều bấy nhiêu, không lo sợ thừa đường mà lại đẹp da, giữ dáng.
+The more often eaten, the more abundant the substance, not afraid of the road but beautiful skin, keep the shape.
 
-1. Táo
+Apple
+According to Oriental medicine, apple has a cool sweetness, regardless of the apple has any effect on the heart, gas, refreshment, reduce cough, kidney, tonic, relieve stress tired.
 
-Theo Đông y, táo có tính lạnh vị ngọt, bất kể là giống táo nào cũng đều có tác dụng bổ tim, ích khí, giải khát, giảm ho, bổ thận, dưỡng dạ dày, giải tỏa căng thẳng mệt mỏi.
+Especially, for people who often drink alcohol should eat more apples because apples have the effect of alcohol and detoxification very well. Eating apples can help reduce blood sugar, so it's especially good for people with diabetes.
 
-Đặc biệt, đối với những người thường xuyên uống rượu thì nên ăn nhiều táo vì táo có tác dụng giải rượu và thải độc rất tốt. Ăn táo có thể giúp giảm lượng đường trong máu, vì thế đặc biệt tốt với những người mắc bệnh tiểu đường.
+Papaya
+According to Oriental Medicine, papaya is a fruit with extremely rich nutrients, which contain a large amount of enzymes papain, glaze, carotene ... along with more than 17 kinds of amino acids and many nutrients other special.
 
-2. Đu đủ
+Papaya is also used to prevent high blood pressure, kidney inflammation, constipation, digestive support, promote metabolism and anti-aging.
 
-Theo Đông y, đu đủ là một loại quả có thành phần dinh dưỡng cực kỳ phong phú, trong đó chứa một lượng lớn các chất enzyme papain, men dịch vị, caroten… cùng với hơn 17 loại axit amin và nhiều thành phần dinh dưỡng đặc biệt khác.
+Research shows that the papain enzyme in papaya stimulates the metabolism in the skin, helps the skin eliminate the oily deposits in the pores, anti-aging skin, make the skin healthy, bright white.
 
-Đu đủ còn có tác dụng phòng ngừa cao huyết áp, viêm thận, táo bón, hỗ trợ tiêu hóa, thúc đẩy sự trao đổi chất và chống lão hóa.
+In addition, papaya has antibacterial, anti-inflammatory, reduce blood fat quite effective.
 
-Nghiên cứu cho thấy, chất enzyme papain có trong quả đu đủ có tác dụng thúc đẩy sự trao đổi chất ở da, giúp da đào thải những chất nhờn tích tụ ở lỗ chân lông, chống lão hóa da, khiến cho da khỏe mạnh, trắng sáng.
+Grapefruit
+Grapefruit is a fruit that is advised to eat a lot, because grapefruit has the effect of reducing blood sugar. According to oriental medicine, grapefruit has a sweet taste, slightly acid, sputum effect, support digestion, support treatment of edema disease, inflammation ...
 
-Ngoài ra, đu đủ còn có tác dụng kháng khuẩn, chống viêm, giảm mỡ máu khá hiệu quả.
+Especially diabetic people should eat grapefruit, as in grapefruit contains a large amount of insulin, not only reduce blood sugar but also protect the heart.
 
-3. Bưởi
+Yeah
+Guava is a famous tropical fruit. When the fruit is ripe, green, sweet and cool turmeric, is a popular fruit and high yield in Vietnam.
 
-Theo nghiên cứu cho thấy, bưởi là loại trái cây được khuyên là nên ăn nhiều, bởi vì bưởi có có tác dụng làm giảm lượng đường trong máu. Theo đông y, quả bưởi có tính hàn vị ngọt, hơi chua, có tác dụng tiêu đờm, hỗ trợ tiêu hóa, hỗ trợ điều trị các chứng bệnh phù nề, viêm nhiễm…
+It is rich in nutrients, contains a large amount of vitamins A, C, fiber and trace elements such as phosphorus, potassium, calcium, magnesium. Protein and lipid content in guava are also varied.
 
-Đặc biệt những người mắc bệnh tiểu đường càng nên ăn bưởi, vì trong bưởi có chứa một lượng lớn thành phần insulin, không chỉ có tác dụng giảm lượng đường trong máu mà còn có tác dụng bảo vệ tim mạch.
+Eating guava regularly can help you fight aging, eliminate toxins from the body, promote metabolism, regulate physiological function, promote health. More specifically, guava is a very good fruit for people with diabetes.
 
-4. Ổi
+Cherry (Cherry)
+Cherry is also a low sugar fruit, so anyone who is afraid of fat can choose cherries to replace other high-sugar fruits.
 
-Quả ổi là một loại trái cây nhiệt đới nổi tiếng. Khi quả chín màu xanh nhạt, thịt ổi dày ngọt và mát, là loại quả phổ biến và sản lượng cao ở Việt Nam.
+According to oriental medicine, cherry fruit sweetness, sweet effect of beneficial gas damage, sweat, detoxification and beauty skin. Not only that, cherries also support very good treatment of gastric disorders.
 
-Ổi có hàm lượng dinh dưỡng phong phú, chứa một lượng lớn các chất vitamin A, C, chất xơ và các nguyên tố vi lượng như phốt pho, kali, canxi, magiê. Ngoài ra hàm lượng protein và lipid trong quả ổi cũng rất đa dạng.
+Especially, it is considered as a fruit for women, as it is always good for health and beauty. Cherry is also rich in pectin - which increases the amount of insulin secreted, rapidly reducing and stabilizing blood sugar.
 
-Ăn ổi thường xuyên có thể giúp bạn chống lão hóa, đào thải những độc tố ra khỏi cơ thể, thúc đẩy sự trao đổi chất, điều tiết chức năng sinh lý, tăng cường sức khỏe. Đặc biệt hơn nữa, ổi là một loại trái cây rất tốt đối với những người mắc bệnh tiểu đường.
-
-5. Cherry (Anh đào)
-
-Quả anh đào cũng là một loại trái cây có lượng đường thấp, vì thế những ai sợ béo có thể chọn anh đào để thay thế các loại trái cây có hàm lượng đường cao khác.
-
-Theo Đông y, quả anh đào tính ôn, vị ngọt có tác dụng ích khí bổ hư, ra mồ hôi, giải độc và làm đẹp da. Không những thế, anh đào còn hỗ trợ rất tốt điều trị chứng rối loạn dạ dày.
-
-Đặc biệt, đây còn được xem là trái cây dành cho phụ nữ, vì nó luôn tốt cho sức khỏe và sắc đẹp. Anh đào cũng giàu hàm lượng chất pectin – có tác dụng làm tăng lượng bài tiết insulin, nhanh chóng làm giảm và ổn định lượng đường trong máu.
-
-Vì thế, kiến nghị những người có lượng đường trong máu cao và những người mắc bệnh tiểu đường nên ăn nhiều quả anh đào.
+Therefore, it is recommended that people with high blood sugar and people with diabetes eat lots of cherries.

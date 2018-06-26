@@ -1,141 +1,133 @@
 ---
 published: true
 hidden: false
-title: 7 Lợi Ích Tuyệt Vời Của Vỏ Chanh Mà Ít Người Biết Tới
+title: 7 Great Benefits of Lemon Custard That Few People Know
 image: vo-chanh.jpg
-custom_excerpt: Chanh là một loại gia vị phổ biến được yêu thích trên khắp thế giới. Nhưng bạn có biết, chanh còn là một trong những loại thực phẩm mà bạn có thể sử dụng từng thành phần của nó – từ thịt đến vỏ.
+custom_excerpt: Lemon is a popular spice to be enjoyed all over the world. But you know, lemon is one of the foods that you can use every part of it - from meat to the shell.
+
 ---
 
-Vỏ chanh chứa nhiều Vitamin, khoáng chất và chất xơ giúp tăng cường dinh dưỡng. Trong thực tế, so với nước chanh, vỏ có nhiều Vitamin A và C, Beta-caroten, Folate, Canxi, Magiê và Kali.
-Lớp vỏ chanh thậm chí còn có mùi tươi mát rất dễ chịu, có thể thêm hương vị và mùi thơm cho thực phẩm cũng như đồ uống. Nó cũng cung cấp những lợi ích trong việc dưỡng da và vệ sinh gia đình.
+Lemon bark contains a lot of vitamins, minerals and fiber to enhance nutrition. In fact, compared with lemonade, the shell is rich in Vitamin A and C, Beta-carotene, Folate, Calcium, Magnesium and Potassium. The lemon peel even has a nice fresh smell, can add flavor and aroma to food as well as drinks. It also provides benefits in skin care and household hygiene.
 
-Dưới đây là các ứng dụng tuyệt vời của vỏ chanh ít được biết đến.
+Here are the great applications of little known lemon peels.
 
-1. Làm Đẹp Và Cải thiện Sức khoẻ Làn Da
+Beauty And Improve Skin Health
+The lime shell has many benefits for your skin. Acid in lemon peel can make the skin look beautiful and soft.
 
-Vỏ chanh có nhiều lợi ích cho làn da của bạn. Axít trong vỏ chanh có thể giúp da sáng đẹp và mềm mai hơn rất nhiều.
+In addition, lemon peel is good at removing and removing dead skin cells, while stimulating new skin growth. It also has the effect of treating acne.
 
-Hơn nữa, vỏ chanh rất tốt trong việc tẩy và loại bỏ các tế bào da chết, đồng thời kích thích sự phát triển da mới. Nó còn có tác dụng trị mụn trứng cá.
+You can use the lemon peel to beauty skin in the following ways:
 
-Bạn có thể sử dụng vỏ chanh để làm đẹp da với các cách dưới đây:
+Rub the fresh lemon peel on the face. Wait 10 minutes, then rinse with lukewarm water. Take 3 or 4 times a week for a beautiful and smooth complexion.
 
-Chà vỏ chanh tươi trên mặt. Đợi 10 phút, sau đó rửa sạch bằng nước ấm. Làm 3 hoặc 4 lần một tuần để có làn da sáng đẹp và mịn màng.
+Dry the lemon under the sun for several days. Place the lemon crumbs in the grinder into the flour. Mix 1 cup puree with ½ cup sugar, olive oil and honey. Gently rub the natural mixture on your moist skin for a few minutes, then leave it for 15 minutes before rinsing to get soft skin.
 
-Làm khô vỏ chanh dưới ánh mặt trời trong vài ngày. Đặt vỏ chanh khô vào máy xay thành bột thô. Trộn 1 chén hỗn hợp nhuyễn với ½ chén đường, dầu ôliu và mật ong. Nhẹ nhàng chà xát hỗn hợp tự nhiên trên da ẩm của bạn trong vài phút, sau đó để nó trong 15 phút trước khi rửa sạch để có được làn da mềm mại.
+Grind the dried lemon peel, then add a little water to create a mixture. Apply it on the acne area. Leave for 10 minutes, then rinse with lukewarm water.
 
-Xay vỏ chanh khô thành bột, sau đó thêm một ít nước để tạo ra một hỗn hợp. Áp dụng nó trên vùng bị mụn trứng cá. Để yên trong 10 phút, sau đó rửa sạch bằng nước ấm. 
+Repeat once a day to ensure that acne will disappear completely.
 
-Lặp lại một lần mỗi ngày đảm bảo mụn trứng cá sẽ biến mất hoàn toàn.
+Make Lemon Tea
+Instead of removing the peel, you can use it to make delicious and nutritious tea.
 
-2. Làm Trà Chanh
+Rich in vitamin C and antioxidants, lemon peel can help improve digestion, lose weight, balance the pH level, boost the immune system and bring more benefits to the liver.
 
-Thay vì bỏ vỏ, bạn có thể sử dụng nó để tạo ra cốc trà ngon và bổ dưỡng.
+How to make lemon tea:
 
-Giàu vitamin C và các chất chống oxy hoá, vỏ chanh có thể giúp cải thiện việc tiêu hóa, giảm cân, cân bằng mức độ pH, tăng cường hệ thống miễn dịch và mang lại nhiều lợi ích cho gan.
+Add 1 tbsp sliced ​​lemon peel (remove spongy stone) into the cup.
 
-Cách làm trà vỏ chanh:
+Pour some boiling water.
 
-Cho 1 muỗng canh vỏ chanh thái mỏng (loại bỏ cùi xốp) vào cốc.
+Cover and let it soak for 10 minutes.
 
-Đổ một ít nước sôi lên.
+Shaken
 
-Đậy lại và để cho nó ngấm trong 10 phút.
+Add honey and stir well.
 
-Lắc đều
+Drink tea while still warm.
 
-Thêm mật ong và khuấy kỹ.
+Chao An
+Dealing with ants is a tedious task. Now you can make your kitchen and other areas indoors without any ant's thanks to the help of lemon peel.
 
-Uống trà trong khi vẫn ấm.
+The smell of lemon works to prevent ants. In addition, the acidic components in it will cause ants to lose their traces and disorientation.
 
-3. Đuổi Kiến
+Cut the lemon into thin slices.
 
-Đối phó với kiến ​​là một nhiệm vụ mệt mỏi. Bây giờ, bạn có thể làm cho nhà bếp của bạn và các khu vực khác trong nhà không còn bóng dáng một con kiến nào nhờ sự giúp đỡ của vỏ chanh.
+Place slices on windows, doorways and any type of cracks to prevent insects and ants from entering the house.
 
-Mùi chanh có tác dụng ngăn chặn kiến . Ngoài ra, các thành phần có tính axit trong nó sẽ làm cho kiến mất dấu vết của nhau và mất phương hướng.
+Change the lemons every few days until you see no ant.
 
-Thái vỏ chanh thành từng lát mỏng.
+Make A Superl Cleanser
+Lemon can also be used for cleaning purposes. The acidity of lemon peels is an excellent element for disinfection, removing grease and stains.
 
-Đặt các lát này trên cửa sổ, lối vào cửa và bất kỳ loại vết nứt nào để ngăn không cho côn trùng và kiến ​​tiến vào nhà.
+It is particularly effective in cleaning glass windows, mirrors and showers, and other surfaces.
 
-Thay vỏ chanh vài ngày một lần cho đến khi bạn thấy không còn con kiến nào nữa.
+Add some slices of lemon peel, cut into a clean glass jar.
 
-4. Làm Một Chất Tẩy Rửa Đa Năng
+Add white vinegar to fill
 
-Vỏ chanh cũng có thể được sử dụng vào mục đích làm sạch. Tính axit của vỏ chanh một yếu tố tuyệt vời để khử trùng, loại bỏ dầu mỡ và các vết ố.
+Place the lid and hold the vase on the window sill in the sun for 2-3 weeks, occasionally shaking it.
 
-Nó đặc biệt hiệu quả trong việc làm sạch cửa sổ kính, gương và vòi hoa sen, và các bề mặt khác.
+Pour the mixture through a sieve or a canvas.
 
-Cho một vài miếng vỏ chanh rửa sạch, thái nhỏ vào một cái lọ thủy tinh sạch.
+Pour liquid lemon juice into the spray bottle.
 
-Đổ giấm trắng vào đầy bình
+This homemade solution can disinfect and clean any household appliance. You can dilute it with equal amounts of water to use.
 
-Đặt nắp đậy và giữ bình lên vách cửa sổ dưới trời nắng trong 2-3 tuần, thỉnh thoảng lắc nó.
+Note: Do not use this cleaner on granite and marble surfaces.
 
-Đổ hỗn hợp qua một lưới lọc hoặc một tấm vải chùm.
+Whitening Tooth And Nail
+To brighten your nails, lemon peel is one of the best secrets. Its acidity helps to reduce discoloration. In addition, it is effective in treating nail infections that can cause discoloration.
 
-Cho chất lỏng chanh giấm này vào chai xịt sạch sẽ.
+Soak your nails in warm water for 10 minutes.
 
-Dung dịch tự chế này có thể khử trùng và làm sạch bất cứ dụng cụ nào trong gia đình bạn. Bạn có thể pha loãng nó với một lượng nước tương đương để sử dụng.
+Rub each nail with fresh lemon peel for 20 to 30 seconds.
 
-Lưu ý: Không sử dụng chất làm sạch này trên bề mặt đá granite và đá cẩm thạch.
+Wash your nails with water.
 
-5. Làm Trắng Răng Và Móng Tay
+Use this treatment twice daily until the nail regains its natural color.
 
-Để làm sáng móng tay, vỏ chanh là một trong những bí mật tốt nhất. Tính axit của nó giúp giảm sự đổi màu. Ngoài ra, nó còn hiệu quả trong điều trị nhiễm trùng móng có thể gây ra sự đổi màu.
+You can also use fresh lemon peels to reduce plaque and yellowing buildup on teeth, especially due to smoking.
 
-Ngâm móng tay của bạn trong nước ấm trong 10 phút.
+Rub lemon peel on teeth for 2 to 3 minutes.
 
-Chà mỗi móng của bạn với vỏ chanh tươi trong 20 đến 30 giây.
+Rinse your teeth and mouth with warm water.
 
-Rửa móng bằng nước.
+Do it twice a day until you are satisfied with the results.
 
-Sử dụng phương pháp điều trị này hai lần mỗi ngày cho đến khi móng lấy lại màu sắc tự nhiên.
+Create Aroma For Moisturizers
+The winter air is very dry, so using a humidifier will bring benefits to both you and your family. In fact, the increase in humidity significantly reduces the ability of the virus to cause influenza in the air.
 
-Bạn cũng có thể sử dụng vỏ chanh tươi để giảm mảng bám và màu vàng ố tích tụ trên răng, đặc biệt là do hút thuốc.
+If you are using a thermo humidifier, you can add lemon peel to the water to create a sweet and refreshing aroma in the room.
 
-Chà vỏ chanh trên răng trong 2 đến 3 phút.
+Put lemon peel into water pot.
 
-Rửa sạch răng và miệng của bạn với nước ấm.
+Add some cloves and cinnamon as you like.
 
-Thực hiện hai lần mỗi ngày cho đến khi bạn thấy hài lòng với kết quả.
+Boil water at the lowest temperature to moisten and create scent in the air.
 
-6. Tạo Hương Thơm Cho Máy Làm Ẩm
+Deodorization and Cleaning of Microwave Ovens
+Food scattered in the microwave oven makes them smelly, greasy. Microwave ovens are one of the most neglected kitchen appliances.
 
-Không khí mùa đông rất khô, do đó việc sử dụng một máy tạo độ ẩm sẽ mang lại nhiều lợi ích cho cả bạn và gia đình. Trên thực tế, việc gia tăng độ ẩm làm giảm đáng kể khả năng của virus gây bệnh cúm trong không khí.
+If your microwave needs the best method of cleaning, use a lemon peel. The sour taste of lemon peel will help remove stains and grease that may accumulate inside the microwave oven. It will even make the smell in the microwave more fragrant.
 
-Nếu bạn đang sử dụng máy tạo ẩm bằng nhiệt, bạn có thể thêm vỏ chanh vào nước để tạo một mùi thơm nhẹ dịu và sảng khoái trong phòng.
+Fill the bowl with water.
 
-Đặt vỏ chanh vào nồi nước.
+Squeeze 2 or 3 lemons into water. Also, cut lemon peel and drop the pieces in water.
 
-Thêm một số cây đinh hương và quế cây tùy ý thích.
+Place the bowl in the microwave and leave it high for 5 minutes to create steam.
 
-Đun sôi nước ở nhiệt độ thấp nhất để làm ẩm và tạo mùi hương trong không khí.
+Turn off the microwave, but do not open another 10 minutes.
 
-7. Khử Mùi Và Làm Sạch Lò Vi Sóng
+Then, clean it with a damp towel.
 
-Thực phẩm văng tung tóe trong lò vi sóng khiến chúng hôi hám, dính đầy dầu mỡ.  Lò vi sóng lại là một trong những thiết bị nhà bếp thường bị bỏ quên nhất.  
+Additional Tips:
 
-Nếu lò vi sóng của bạn cần một phương pháp vệ sinh tốt nhất, hãy sử dụng vỏ chanh. Tính chất chua của vỏ chanh sẽ giúp loại bỏ các vết bẩn và mỡ có thể tích tụ bên trong lò vi sóng. Nó thậm chí sẽ làm cho mùi trong lò vi sóng thơm hơn.
+Add the lemon peel (removed the intestine) to the brown sugar to keep it moist and easy to use.
 
-Đổ đầy bát nước.
+Throw some lemon at the bottom of the bin to prevent odors.
 
-Vắt 2 hoặc 3 quả chanh vào trong nước. Ngoài ra, cắt vỏ chanh và thả các mảnh trong nước.
+If you have a dishwasher, add some lemon peel to deodorize and clean it.
 
-Đặt bát vào lò vi sóng và để mức cao trong 5 phút để tạo hơi nước.
+Lighten copper or stainless steel objects by rubbing the surface with fresh lemon peel.
 
-Tắt lò vi sóng, nhưng không mở cửa thêm 10 phút nữa.
-
-Sau đó, lau chùi bên trong bằng khăn ướt.
-
-Lời khuyên bổ sung:
-
-
-Thêm vỏ chanh (đã loại bỏ phần ruột) vào đường nâu để giữ ẩm và dễ sử dụng.
-
-Vứt một ít vỏ chanh ở đáy thùng rác để ngăn mùi hôi.
-
-Nếu bạn có máy rửa chén, thỉnh thoảng thêm vỏ chanh vào để khử mùi và làm sạch.
-
-Làm sáng các đồ vật bằng đồng hoặc bằng thép không gỉ bằng cách chà bề mặt bằng vỏ chanh tươi.
-
-Đặt vỏ chanh trong nước tắm sẽ giúp bạn sảng khoái hơn và mùi hương tuyệt vời.
+Placing the lemon peel in the bath water will give you more pleasure and great scent.
