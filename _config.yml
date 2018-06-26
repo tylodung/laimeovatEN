@@ -1,0 +1,29 @@
+# Site settings
+title: "Mẹo hay của Mẹ"
+url-title: "Mẹo hay của Mẹ"
+description: "mẹo vặt gia đình, mẹo vặt hàng ngày, mẹo vặt nhân gian."
+paginate: 100
+url: "http://meohaycuame.net"
+permalink: /:year/:month/:title/
+future: false
+defaults:
+  -
+    scope:
+      path: ""
+      type: "posts"
+    values:
+      layout: "post"
+      excerpt_words: 25
+
+# Build settings
+markdown: kramdown
+highlighter: rouge
+kramdown:
+  input: GFM
+  syntax_highlighter: rouge
+sass:
+  sass_dir: _sass
+  style: compressed
+  deploy_style: compressed
+
+gems: [jekyll-paginate]
