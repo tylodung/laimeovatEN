@@ -1,9 +1,9 @@
 # Site settings
-title: "Mẹo hay của Mẹ"
-url-title: "Mẹo hay của Mẹ"
-description: "mẹo vặt gia đình, mẹo vặt hàng ngày, mẹo vặt nhân gian."
+title: "Good tip"
+url-title: "Good tip"
+description: "family tips, tips daily, tips tips."
 paginate: 100
-url: "http://meohaycuame.net"
+url: "http://goodtipss.info/"
 permalink: /:year/:month/:title/
 future: false
 defaults:
